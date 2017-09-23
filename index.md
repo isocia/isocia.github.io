@@ -20,3 +20,6 @@ Here you will find important notes about class and links that are useful for hom
     Rabbana zalamna anfusina wa il lam taghfir lana wa tarhamna lana kunan minal-khasireen 
     
     Our Lord! We have wronged our own souls. If you do not forgive us and bestow upon us Your Mercy, we will certainly be lost.
+   
+#### Week 3:
+* [Prophet Nūh - Due 9/30/2017](https://youtu.be/LGCm2IPlIsU)
