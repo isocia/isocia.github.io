@@ -22,4 +22,16 @@ Here you will find important notes about class and links that are useful for hom
     Our Lord! We have wronged our own souls. If you do not forgive us and bestow upon us Your Mercy, we will certainly be lost.
    
 #### Week 3:
-* [Prophet Nūh - Due 9/30/2017](https://youtu.be/LGCm2IPlIsU)
+* Extra Credit - Extended (Due 10/07/2017)
+    Prophet Adam's Duʿāʾ for Forgiveness - Due 9/23/2017
+    
+    $5 Extra Credit for memorizing Arabic and $5 Extra Credit for memorizing English
+    
+    
+    رَبَّنَا ظَلَمْنَا أَنفُسَنَا وَإِن لَّمْ تَغْفِرْ لَنَا وَتَرْحَمْنَا لَنَكُونَنَّ مِنَ الْخَاسِرِينَ 
+    
+    Rabbana zalamna anfusina wa il lam taghfir lana wa tarhamna lana kunan minal-khasireen 
+    
+    Our Lord! We have wronged our own souls. If you do not forgive us and bestow upon us Your Mercy, we will certainly be lost.
+    
+* [Prophet Nūh - Due 10/07/2017](https://youtu.be/LGCm2IPlIsU)
