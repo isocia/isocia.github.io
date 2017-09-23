@@ -35,3 +35,4 @@ Here you will find important notes about class and links that are useful for hom
     Our Lord! We have wronged our own souls. If you do not forgive us and bestow upon us Your Mercy, we will certainly be lost.
     
 * [Prophet Nūh - Due 10/07/2017](https://youtu.be/LGCm2IPlIsU)
+    * Write 10 Bullet Points on the video
