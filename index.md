@@ -1,8 +1,10 @@
 ## ISOC Saturday Islamic Academy
 
-Here you will find important notes about class and links that are useful for homework. 
+Here you will find important information, notes about class, and links that are useful for homework. 
 
-### Younger Class
+### [General](https://isocia.github.io/General)
+### [Younger Class](https://isocia.github.io/YoungerClass)
+### [Older Class](https://isocia.github.io/OlderClass)
 
 #### Week 1:
 * Prophet Adam
