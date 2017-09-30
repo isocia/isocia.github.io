@@ -15,7 +15,7 @@ Here you will find important notes about class and links that are useful for hom
     
     رَبَّنَا ظَلَمْنَا أَنفُسَنَا وَإِن لَّمْ تَغْفِرْ لَنَا وَتَرْحَمْنَا لَنَكُونَنَّ مِنَ الْخَاسِرِينَ 
     
-    Rabbana zalamna anfusina wa il lam taghfir lana wa tarhamna lana kunan minal-khasireen 
+    Rabbana ẓalamna anfusana wa il lam taghfir lana wa tarhamna lana kunana minal-khasireen 
     
     Our Lord! We have wronged our own souls. If you do not forgive us and bestow upon us Your Mercy, we will certainly be lost.
    
