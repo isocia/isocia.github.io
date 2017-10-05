@@ -20,7 +20,7 @@ Here you will find important notes about class and links that are useful for hom
     Our Lord! We have wronged our own souls. If you do not forgive us and bestow upon us Your Mercy, we will certainly be lost.
    
 #### Week 3:
-##### ANNOUNCEMENT: Activity Day is rescheduled to next Saturday (10/7). Class this week (9/30) will not be activity day, because it is the blessed day of ʿĀshūrāʾ. We should all try to fast on ʿĀshūrāʾwhich is next Saturday and it is also recommended for everyone to fast on Sunday as well. The Messenger of God ﷺ said: “Fast on ʿĀshūrāʾ. Doing so will forgive your sins of the previous year.” More information can be found [here](https://servantsofthebeloved.com/writeups/ashura.html)
+##### ANNOUNCEMENT: Activity Day is rescheduled to next Saturday (10/7). Class this week (9/30) will not be activity day, because it is the blessed day of ʿĀshūrāʾ. We should all try to fast on ʿĀshūrāʾwhich is next Saturday and it is also recommended for everyone to fast on Sunday as well. The Messenger of God ﷺ said: “Fast on ʿĀshūrāʾ. Doing so will forgive your sins of the previous year.” More information can be found <a href="https://servantsofthebeloved.com/writeups/ashura.html" target="_blank">here</a>
 * Extra Credit - Extended (Due 9/30/2017)
     Prophet Adam's Duʿāʾ for Forgiveness
     
