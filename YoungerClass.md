@@ -35,3 +35,6 @@ Here you will find important notes about class and links that are useful for hom
     
 * <a href="https://youtu.be/LGCm2IPlIsU" target="_blank">Prophet Nūḥ - Due 9/30/2017</a>
     * Write 10 Bullet Points on the video
+
+#### Week 4:
+* There will be a duʿāʾ quiz this week for duʿāʾs 1-3 (including 3a and 3b). These duʿāʾs are: Waking Up, Sleeping, Entering the Restroom, and Exiting the Restroom. Get ready!
