@@ -13,7 +13,6 @@ long nails
 5. Rinse your mouth three times
      
       a. Brush your teeth with a tooth stick (miswak/siwak) each time.
-     
       b. If you don’t have one, use a toothbrush or your finger
 
 6. Rise your nose three times and clean your nose with your left hand
