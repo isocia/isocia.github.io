@@ -6,7 +6,7 @@ Here you will find important notes about class and links that are useful for hom
 * Prophet Adam
 
 #### Week 2:
-* <a href="https://www.youtube.com/watch?v=T2_7Y4Jrg0k" target="_blank">Prophet Idris - Due 9/23/2017</a>
+* <a href="https://www.youtube.com/watch?v=T2_7Y4Jrg0k" target="_blank">Prophet Idris</a> - Due 9/23/2017
 * Extra Credit
     Prophet Adam's Duʿāʾ for Forgiveness - Due 9/23/2017
     
