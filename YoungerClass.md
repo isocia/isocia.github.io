@@ -40,6 +40,8 @@ Here you will find important notes about class and links that are useful for hom
 * There will be a duʿāʾ quiz this week for duʿāʾs 1-3 (including 3a and 3b). These duʿāʾs are: Waking Up, Sleeping, Entering the Restroom, and Exiting the Restroom. Get ready!
 
 #### Week 5:
-* <a href="https://youtu.be/o4tcfC9LArs" target="_blank">Prophet Hūd</a> - Optional
+* Memorize steps 9-14 of Wuḍūʾ
+* Memorize duʿāʾs for getting dressed and undressed
 * <a href="https://youtu.be/_RUNc_lZBVA" target="_blank">Prophe Ṣāliḥ</a> - Due 10/21/2017
     * Write 10 Bullet Points on the video
+*<a href="https://youtu.be/o4tcfC9LArs" target="_blank">Prophet Hūd</a> - Optional
