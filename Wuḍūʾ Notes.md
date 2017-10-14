@@ -11,6 +11,7 @@ your hands. Especially places that are harder to reach like under your nails if 
 long nails
 
 5. Rinse your mouth three times
+     
      a. Brush your teeth with a tooth stick (miswak/siwak) each time.
      b. If you don’t have one, use a toothbrush or your finger
 
