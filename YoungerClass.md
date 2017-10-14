@@ -44,4 +44,4 @@ Here you will find important notes about class and links that are useful for hom
 * Memorize duʿāʾs for getting dressed and undressed
 * <a href="https://youtu.be/_RUNc_lZBVA" target="_blank">Prophet Ṣāliḥ</a> - Due 10/21/2017
     * Write 10 Bullet Points on the video
-*<a href="https://youtu.be/o4tcfC9LArs" target="_blank">Prophet Hūd</a> - Optional
+* <a href="https://youtu.be/o4tcfC9LArs" target="_blank">Prophet Hūd</a> - Optional
