@@ -1,2 +1,6 @@
 theme: jekyll-theme-cayman
 title: ISOC Saturday Islamic Academy
+
+.site-footer {
+	display: none;
+}
