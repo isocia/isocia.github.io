@@ -59,4 +59,6 @@ Here you will find important notes about class and links that are useful for hom
     <i>Ashhadu al la ilāha illa ‘Llāh waḥdahū la sharīka lah(ū), wa ashhadu anna Muhammadan ʿabduhū wa rasūluh(ū).</i>
 
     Translation: I testify that there is no deity except Allah, alone, without any partner; and I testify that Muhammad
+    
+    Virtue: The eight gates of Jannah (heaven) will be opened for him on the Day of Judgement, and he can enter from whichever          gate he wants.
 
