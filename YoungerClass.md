@@ -48,3 +48,13 @@ Here you will find important notes about class and links that are useful for hom
     * Write 10 Bullet Points on the video
 * $5 Extra Credit - <a href="https://youtu.be/o4tcfC9LArs" target="_blank">Prophet Hūd</a> - Due 10/21/2017
     * Write 10 Bullet Points on the video
+    
+#### Week 6:
+* Memorize the 6 things the invalidate Wuḍūʾ
+* $10 EXTRA CREDIT: Memorize the duā' after Wuḍū' with the translation
+    
+    أَشْهَدُ أَنْ لَا إِله إِلَّا الله وَحْدَﻩُ لَا شَرِيْكَ لَهُ وَأَشْهَدُ أَنَّ مُحَمَّداً عَبْدُهُ وَرَسُوْلُهُ
+Ashhadu al la ilāha illa ‘Llāh waḥdahū la sharīka lah(ū), wa ashhadu anna Muhammadan ʿabduhū wa rasūluh(ū).
+
+Translation: I testify that there is no deity except Allah, alone, without any partner; and I testify that Muhammad
+
