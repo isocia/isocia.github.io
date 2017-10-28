@@ -65,5 +65,6 @@ Here you will find important notes about class and links that are useful for hom
 #### Week 7:
 * Memorize #1-6 of _Things That Break Wuḍūʾ_
 * There will be a duʿāʾ quiz this week for duʿāʾs 1-6. These duʿāʾs are: Waking Up, Sleeping, Entering the Restroom, Leaving the Restroom, Getting Dressed, Getting Undressed, Leaving the Home, and Entering the Home
+* There will be a Stories of the Prophets Quiz for all the Prophets covered so far. This includes Prophet ʾĀdam, Prophet ʾIdrīs, Prophet Nūḥ, Prophet Ṣāliḥ, and Prophet Hūd
 * <a href="https://youtu.be/W45DrRGECQE" target="_blank">Prophet Ibrāhīm</a> - Due 11/04/2017
     * Write 10 Bullet Points on the video
