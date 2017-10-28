@@ -62,3 +62,6 @@ Here you will find important notes about class and links that are useful for hom
     
     Virtue: The eight gates of Jannah (heaven) will be opened for him on the Day of Judgement, and he can enter from whichever          gate he wants.
 
+#### Week 7:
+* Memorize #1-6 of _Things That Break Wuḍūʾ_
+* There will be a duʿāʾ quiz this week for duʿāʾs 1-6. These duʿāʾs are: Waking Up, Sleeping, Entering the Restroom, Leaving the Restroom, Getting Dressed, Getting Undressed, Leaving the Home, and Entering the Home
