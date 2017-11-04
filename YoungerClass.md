@@ -73,8 +73,8 @@ Here you will find important notes about class and links that are useful for hom
 * Memorize duʿāʾ 7 (Entering the Masjid), Line 1
 * Practice duʿāʾs 1-6
 * Memorize #1-6 of _Things That Break Wuḍūʾ_
-* If you have not done the Prophet Ibrāhīm homework from last week, please do that:
-    * <a href="https://youtu.be/W45DrRGECQE" target="_blank">Prophet Ibrāhīm</a> - Due 11/04/2017
+* If you have not done the Prophet Ibrāhīm homework from last week, please do that by next week, November 11th:
+    * <a href="https://youtu.be/W45DrRGECQE" target="_blank">Prophet Ibrāhīm</a>
     * Write 10 Bullet Points on the video
 * <a href="https://goo.gl/forms/xVUc49i8VVgx23W32" target="_blank">Wrtie a poem/rap about the Prophet that you were assigned and submit it here by next week, November 11th.</a>
     * Prophet Adam - Mauro
