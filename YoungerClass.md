@@ -58,7 +58,7 @@ Here you will find important notes about class and links that are useful for hom
     
     <i>Ashhadu al la ilāha illa ‘Llāh waḥdahū la sharīka lah(ū), wa ashhadu anna Muhammadan ʿabduhū wa rasūluh(ū).</i>
 
-    Translation: I testify that there is no deity except Allah, alone, without any partner; and I testify that Muhammad
+    Translation: I testify that there is no god except Allah, alone, without any partner; and I testify that Muhammad is His slave and Messenger 
     
     Virtue: The eight gates of Jannah (heaven) will be opened for him on the Day of Judgement, and he can enter from whichever          gate he wants.
 
@@ -68,3 +68,16 @@ Here you will find important notes about class and links that are useful for hom
 * There will be a Stories of the Prophets Quiz for all the Prophets covered so far. This includes Prophet ʾĀdam, Prophet ʾIdrīs, Prophet Nūḥ, Prophet Ṣāliḥ, and Prophet Hūd
 * <a href="https://youtu.be/W45DrRGECQE" target="_blank">Prophet Ibrāhīm</a> - Due 11/04/2017
     * Write 10 Bullet Points on the video
+
+#### Week 8:
+* Memorize duʿāʾ 7 (Entering the Masjid), Line 1
+* Practice duʿāʾs 1-6
+* Memorize #1-6 of _Things That Break Wuḍūʾ_
+* If you have not done the Prophet Ibrāhīm homework from last week, please do that:
+    * <a href="https://youtu.be/W45DrRGECQE" target="_blank">Prophet Ibrāhīm</a> - Due 11/04/2017
+    * Write 10 Bullet Points on the video
+* <a href="https://goo.gl/forms/xVUc49i8VVgx23W32" target="_blank">Wrtie a poem/rap about the Prophet that you were assigned and submit it here by next week, November 11th.</a>
+    * Prophet Adam - Mauro
+    * Prophet Nuh - Mahad
+    * Prophet Salih - Omar
+    * Prophet Hud - Bilal
