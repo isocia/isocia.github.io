@@ -8,9 +8,9 @@ Here you will find important notes about class and links that are useful for hom
 
 
 #### Extra Credit - Due before Final Exam:
-* Shamāʾil Class: Come up with an intresting way to present The Beautiful Physical Characteristics of The Prophet ﷺ. Amount: $5 - $20.
+* _Shamāʾil Class_: Come up with an intresting way to present The Beautiful Physical Characteristics of The Prophet ﷺ. Amount: $5 - $20.
 
-* Tafsīr Class: Take one sūrah we have covered so far and and write a 250 word essay on it's importance and the lessons we can take from it.  Amount: $10.
+* _Tafsīr Class_: Take one sūrah we have covered so far and and write a 250 word essay on it's importance and the lessons we can take from it.  Amount: $10.
   
- * Ṣaḥābah Class: What is the importance of the Ṣaḥābah in our religion? Why is it important for us to learn about the Sahabah in the first place? Please provide specific examples from the lives of the Ṣaḥābah we have so far discussed in class to show the contributions they have made to Islam. Required length: minimum 250 words. Amount $10.
+ * _Ṣaḥābah Class_: What is the importance of the Ṣaḥābah in our religion? Why is it important for us to learn about the Sahabah in the first place? Please provide specific examples from the lives of the Ṣaḥābah we have so far discussed in class to show the contributions they have made to Islam. Required length: minimum 250 words. Amount $10.
   
