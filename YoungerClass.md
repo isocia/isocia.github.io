@@ -81,3 +81,4 @@ Here you will find important notes about class and links that are useful for hom
     * Prophet Nuh - Mahad
     * Prophet Salih - Omar
     * Prophet Hud - Bilal
+* Fill out a <a href="https://drive.google.com/file/d/0B0GbaL8DJzRkTGNsZjVGanIyMlk/view?usp=sharing" target="_blank">Permission Slip</a> for Activity Day at Oak Canyon Nature Center
