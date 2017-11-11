@@ -16,7 +16,7 @@ long nails
 
 6. Rise your nose three times and clean your nose with your left hand
 
-7. Wash your entire face three times. That means from your hairline to below your jawline,
+7. Wash your entire face three times. The face is from your hairline to below your jawline,
 and from one earlobe to the other
 
 8. Wash your arms up to and including the elbows three times
