@@ -1,4 +1,4 @@
-<link rel="shortcut icon" type="image/png" href="https://goo.gl/nQhHHY">
+<link rel="icon" type="image/png" href="https://goo.gl/nQhHHY">
 
 #### > <a href="https://goo.gl/knMNe2" target="_blank">Calendar Tentative [2017-2018]</a>
 
