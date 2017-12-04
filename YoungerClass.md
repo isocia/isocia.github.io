@@ -85,3 +85,5 @@ Here you will find important notes about class and links that are useful for hom
 
 #### Week 12:
 * **Oral Duʿāʾ Final** English & Arabic (December 9, 2017)
+* Review the stories of all the Prophets we talked about
+* Sign class party (Sky High) permission slip. You can find it on the home page.
