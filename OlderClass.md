@@ -10,6 +10,8 @@ Here you will find important notes about class and links that are useful for hom
 #### Extra Credit - Due before Final Exam:
 * **_Shamāʾil Class_**: Come up with an intresting way to present The Beautiful Physical Characteristics of The Prophet ﷺ. Amount: $5 - $20.
 
+* **_Shamāʾil Class_**: Attend "<a href="https://servantsofthebeloved.com/nextevent/thequran.html" target="_blank">The Beloved ﷺ and The Qurʾān</a>" at UCI. Write what you leanred and turn it in the day of, or during PTC. Teachers will be able to take students from ISOC to UCI and back. Amount: $10.
+
 * **_Tafsīr Class_**: Take one sūrah we have covered so far and and write a 250 word essay on it's importance and the lessons we can take from it.  Amount: $10.
 
 * **_Tafsīr Class_**: Research and write about the correlation between the first section (5 verses) of Sūrah al-ʿĀdiyāt and the second section.  Amount: $20.
