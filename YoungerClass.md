@@ -87,3 +87,11 @@ Here you will find important notes about class and links that are useful for hom
 * **Oral Duʿāʾ Final** English & Arabic (December 9, 2017)
 * Review the stories of all the Prophets we talked about
 * Sign class party (Sky Zone) permission slip. You can find it on the home page.
+
+#### Week 13:
+* Review the stories of all the Prophets we talked about. <a href="https://youtu.be/CLuNGk-ughE" target="_blank">Prophet Adam</a>, <a href="https://www.youtube.com/watch?v=T2_7Y4Jrg0k" target="_blank">Prophet Idris</a>, <a href="https://youtu.be/LGCm2IPlIsU" target="_blank">Prophet Nūḥ</a>, <a href="https://youtu.be/o4tcfC9LArs" target="_blank">Prophet Hūd</a>, <a href="https://youtu.be/_RUNc_lZBVA" target="_blank">Prophet Ṣāliḥ</a>, and <a href="https://youtu.be/W45DrRGECQE" target="_blank">Prophet Ibrāhīm</a>
+* Sign class party (Sky Zone) permission slip. You can find it <a href="https://goo.gl/oQC6Rj" target="_blank">here</a>. If you do not sign this slip, you _will_ get unprepared next week
+* Study Tips:
+    * For Duʿāʾs, study your notes and Duʿāʾ book
+    * For Prophets, study your notes and watch the videos again
+    * For Ṭahārah, study your notes and review <a href="https://isocia.github.io/Wu%E1%B8%8D%C5%AB%CA%BE%20Notes" target="_blank">vzSteps of Wuḍūʾ</a>
