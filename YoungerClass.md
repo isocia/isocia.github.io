@@ -95,3 +95,4 @@ Here you will find important notes about class and links that are useful for hom
     * For Duʿāʾs, study your notes and Duʿāʾ book
     * For Prophets, study your notes and watch the videos again
     * For Ṭahārah, study your notes and review <a href="https://isocia.github.io/Wu%E1%B8%8D%C5%AB%CA%BE%20Notes" target="_blank">Steps of Wuḍūʾ</a>
+* If you have Sky Zone socks or socks from any jumping place, bring them!
