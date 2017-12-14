@@ -91,8 +91,11 @@ Here you will find important notes about class and links that are useful for hom
 #### Week 13:
 * Review the stories of all the Prophets we talked about. <a href="https://youtu.be/CLuNGk-ughE" target="_blank">Prophet Adam</a>, <a href="https://www.youtube.com/watch?v=T2_7Y4Jrg0k" target="_blank">Prophet Idris</a>, <a href="https://youtu.be/LGCm2IPlIsU" target="_blank">Prophet Nūḥ</a>, <a href="https://youtu.be/o4tcfC9LArs" target="_blank">Prophet Hūd</a>, <a href="https://youtu.be/_RUNc_lZBVA" target="_blank">Prophet Ṣāliḥ</a>, and <a href="https://youtu.be/W45DrRGECQE" target="_blank">Prophet Ibrāhīm</a>
 * Sign class party (Sky Zone) permission slip. You can find it <a href="https://goo.gl/oQC6Rj" target="_blank">here</a>. If you do not sign this slip, you _will_ get unprepared next week
+*Check out these two videos of people doing wudu to help you understand the steps. 
+    *<a href='https://www.youtube.com/watch?v=VZ0U_xPTom0'>Wuḍūʾ Demo 1</a>
+    *<a href='https://www.youtube.com/watch?v=oR3yqWIDD3g'>Wuḍūʾ Demo 2</a>
 * Study Tips:
     * For Duʿāʾs, study your notes and Duʿāʾ book
     * For Prophets, study your notes and watch the videos again
-    * For Ṭahārah, study your notes and review <a href="https://isocia.github.io/Wu%E1%B8%8D%C5%AB%CA%BE%20Notes" target="_blank">Steps of Wuḍūʾ</a>
+    * For Ṭahārah (Purification), study your notes and review the <a href="https://isocia.github.io/Wu%E1%B8%8D%C5%AB%CA%BE%20Notes" target="_blank">Steps of Wuḍūʾ</a> 
 * If you have Sky Zone socks or socks from any jumping place, bring them!
