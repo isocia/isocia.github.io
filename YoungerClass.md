@@ -98,3 +98,4 @@ Here you will find important notes about class and links that are useful for hom
         * <a href='https://www.youtube.com/watch?v=VZ0U_xPTom0'>Wuḍūʾ Demo 1</a>
         * <a href='https://www.youtube.com/watch?v=oR3yqWIDD3g'>Wuḍūʾ Demo 2</a>
 * If you have Sky Zone socks or socks from any jumping place, bring them!
+* <a href="https://goo.gl/forms/4yaSA4RYYBuw4bz13" target="_blank">Have one of your parents sign up for Parent-Teacher ConferenceJan 6, 2017</a>
