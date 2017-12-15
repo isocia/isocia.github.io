@@ -18,3 +18,4 @@ Here you will find important notes about class and links that are useful for hom
   
  * **_Ṣaḥābah Class_**: What is the importance of the Ṣaḥābah in our religion? Why is it important for us to learn about the Sahabah in the first place? Please provide specific examples from the lives of the Ṣaḥābah we have so far discussed in class to show the contributions they have made to Islam. Required length: minimum 250 words. Amount $10.
   
+* Have one of your parents sign up for <a href="https://goo.gl/forms/4yaSA4RYYBuw4bz13" target="_blank">Parent-Teacher Conference Jan 6, 2017</a>
