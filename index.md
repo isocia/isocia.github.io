@@ -1,4 +1,4 @@
-# > Class will resume next week! (January 13, 2018)
+# > Class will resume this week! (January 13, 2018)
 
 #### > <a href="https://goo.gl/knMNe2" target="_blank">Calendar Tentative [2017-2018]</a>
 
