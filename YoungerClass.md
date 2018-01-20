@@ -8,3 +8,4 @@ Here you will find important notes about class and links that are useful for hom
 
 #### Week 1:
 * Memorize the "When Greating a Fellow Muslim" duʿāʾ, "When Responding to a Greeting of Fellow Muslim" duʿāʾ, and the first line of the "When Entering the Market or School" duʿāʾ. You will be tested on the English and Arabic for all of them next week (01/27/2018) in-shāʾ-Allāh.
+* Review your notes on Shower and Tayammum
