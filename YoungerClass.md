@@ -21,4 +21,4 @@ Here you will find important notes about class and links that are useful for hom
   * If you are prone to sickness, it's suggested that you take Bonine or Dramamine at least one hour before heading out on the water.
 
 #### Week 3:
-* 
+* Memorize the whole "When Entering the Market or School" duʿāʾ. You will be tested on the English and Arabic the week after whale watching (02/10/2018) in-shāʾ-Allāh.
