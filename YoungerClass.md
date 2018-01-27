@@ -9,3 +9,16 @@ Here you will find important notes about class and links that are useful for hom
 #### Week 1:
 * Memorize the "When Greating a Fellow Muslim" duʿāʾ, "When Responding to a Greeting of Fellow Muslim" duʿāʾ, and the first line of the "When Entering the Market or School" duʿāʾ. You will be tested on the English and Arabic for all of them next week (01/27/2018) in-shāʾ-Allāh.
 * Review your notes on Shower and Tayammum
+
+#### Week 2:
+* If you did not sign the permission slip, please get it signed. You can find it <a href="https://goo.gl/Q1X7M7" target="_blank">here</a>.
+* Come bright an early at 8:30 AM to ISOC. We will be going whale watching in-shāʾ-Allāh.
+* Don't forget to bring the following: 
+  * Closed Toed Shoes
+  * Water Bottle
+  * Sun Protection (Sunscreen + Hat)
+  * Light Jacket
+  * If you are prone to sickness, it's suggested that you take Bonine or Dramamine at least one hour before heading out on the water.
+
+#### Week 3:
+* 
