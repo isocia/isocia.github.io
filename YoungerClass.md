@@ -23,3 +23,5 @@ Here you will find important notes about class and links that are useful for hom
 #### Week 3:
 * Memorize the whole "When Entering the Market or School" duʿāʾ. You will be tested on the English and Arabic the week after whale watching (02/10/2018) in-shāʾ-Allāh.
 * Review your notes on Shower, Tayammum, and wiping over socks
+* <a href="https://youtu.be/n6dsA7PBECo" target="_blank">Prophet Nūḥ</a> - Due 02/10/2018
+    * Write 10 Bullet Points on the video
