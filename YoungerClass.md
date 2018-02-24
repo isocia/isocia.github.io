@@ -28,7 +28,7 @@ Here you will find important notes about class and links that are useful for hom
     
 #### Week 5:
 * Watch story of <a href="https://youtu.be/kO8dmMKg9dc" target="_blank">Prophet Yusuf</a>: 
-<iframe width="1440" height="515" src="https://www.youtube.com/embed/kO8dmMKg9dc" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<iframe width="640" height="480" src="https://www.youtube.com/embed/kO8dmMKg9dc" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 * Write up 1 page of notes and turn in 2/17/2018 for **$10 extra credit**
 
 #### Week 7:
