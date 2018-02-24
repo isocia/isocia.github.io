@@ -33,5 +33,5 @@ Here you will find important notes about class and links that are useful for hom
 
 #### Week 7:
 * Watch story of <a href="https://youtu.be/2c48V4fSqco" target="_blank">Prophet Yunus</a> - Due 03/03/2018: 
-<iframe width="640" height="480" src="https://youtu.be/2c48V4fSqco" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<iframe width="1440" height="515" src="https://youtu.be/2c48V4fSqco" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
     * Write 10 Bullet Points on the video
