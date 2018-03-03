@@ -27,11 +27,11 @@ Here you will find important notes about class and links that are useful for hom
     * Write 10 Bullet Points on the video
     
 #### Week 5:
-* Watch story of <a href="https://www.youtube.com/embed/kO8dmMKg9dc" target="_blank">Prophet Yusuf</a>
+* Watch story of <a href="https://www.youtube.com/kO8dmMKg9dc" target="_blank">Prophet Yusuf</a>
 * Write up 1 page of notes and turn in 2/17/2018 for **$10 extra credit**
 
 #### Week 7:
-* Watch story of <a href="https://www.youtube.com/embed/2c48V4fSqco" target="_blank">Prophet Yunus</a> - Due 03/03/2018
+* Watch story of <a href="https://www.youtube.com/2c48V4fSqco" target="_blank">Prophet Yunus</a> - Due 03/03/2018
  * Write 10 Bullet Points on the video
 * Memorize the Milk Duʿāʾ
 * Fill out the Prayer Chart
