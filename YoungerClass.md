@@ -42,3 +42,14 @@ Here you will find important notes about class and links that are useful for hom
  * Write 10 Bullet Points on the video
 * Memorize the "When Breaking the Fast" Duʿāʾ
 * Fill out the Prayer Chart
+* Extra Credit
+    Prophet Yunus's Duʿāʾ of Repentance - Due 9/23/2017
+    
+    $5 Extra Credit for memorizing Arabic and $5 Extra Credit for memorizing English
+    
+    
+    لَا إِلَٰهَ إِلَّا أَنتَ سُبْحَانَكَ إِنِّي كُنتُ مِنَ الظَّالِمِينَ 
+    
+    Lā ilaha illā anta subḥānaka inni kuntu minaẓālimīn 
+    
+    There is no deity except You (Allāh); exalted are You (Allāh). Indeed, I have been of the wrongdoers
