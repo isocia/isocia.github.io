@@ -8,7 +8,7 @@ please Allah
 
 4. Wash your hands three times up to and including your wrists and remove any dirt on
 your hands. Especially places that are harder to reach like under your nails if you have
-long nails
+long nails. Run your fingers through each other to make sure water got in between your fingers
 
 5. Rinse your mouth three times<br />
       a. Brush your teeth with a tooth stick (miswak/siwak) each time.<br />
@@ -20,8 +20,6 @@ long nails
 and from one earlobe to the other
 
 8. Wash your arms up to and including the elbows three times
-
-9. Run your fingers through each other to make sure water got in between your fingers
 
 10. Wipe your entire head once. Start from the front, go all the way to back. Then back to
 the front from the back and cover any parts of your head you missed.
