@@ -55,5 +55,5 @@ Here you will find important notes about class and links that are useful for hom
     There is no deity except You (Allāh); exalted are You (Allāh). Indeed, I have been of the wrongdoers
 
 #### Week 10:
-* Watch story of <a href="https://youtu.be/5IFU5H3RYUc" target="_blank">Prophet Mūsā</a> - Due 03/17/2018
+* Watch story of <a href="https://youtu.be/5IFU5H3RYUc" target="_blank">Prophet Mūsā</a> - Due 03/24/2018
  * Write 10 Bullet Points on the video
