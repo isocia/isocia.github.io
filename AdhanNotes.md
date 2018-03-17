@@ -1,49 +1,49 @@
 <b>Wording of the Adhan</b>
 
 
-1. «اَللهُ أَكْبَرُ، اَللهُ أَكْبَرُ ، اَللهُ أَكْبَرُ ، اَللهُ أَكْبَرُ »
+«اَللهُ أَكْبَرُ، اَللهُ أَكْبَرُ ، اَللهُ أَكْبَرُ ، اَللهُ أَكْبَرُ »
 
 Allaahu Akbar, Allaahu Akbar Allaahu Akbar, Allaahu Akbar.
 
 “Allah is the Greatest, Allah is the Greatest, Allah is the Greatest, Allah is the Greatest.”
 
 
-2. «أَشْهَدُ أَنْ لَا إِلَهَ إِلَّا اللهُ،أَشْهَدُ أَنْ لَا إِلَهَ إِلَّا اللهُ »
+«أَشْهَدُ أَنْ لَا إِلَهَ إِلَّا اللهُ،أَشْهَدُ أَنْ لَا إِلَهَ إِلَّا اللهُ »
 
 Ash-hadu al laa ilaaha illallaah, Ash-hadu al laa ilaaha illallaah.
 
 “I testify that none has the right to be worshiped except Allah, I testify that none has the right to be worshiped except Allah.”
 
 
-3. «أَشْهَدُ أَنَّ مُحَمَّدًا رَسُولُ اللهِ، أَشْهَدُ أَنَّ مُحَمَّدًا رَّسُولُ اللهِ»
+«أَشْهَدُ أَنَّ مُحَمَّدًا رَسُولُ اللهِ، أَشْهَدُ أَنَّ مُحَمَّدًا رَّسُولُ اللهِ»
 
 Ash-hadu anna Muhammadar rasoolullaah, Ash-hadu anna Muhammadar rasoolullaah.
 
 “I testify that Muhammad is the Messenger of Allah , I testify that Muhammad is the Messenger of Allah.”
 
 
-4. «حَيَّ عَلَى الصَّلَاةِ، حَيَّ عَلَى الصَّلَاةِ »
+«حَيَّ عَلَى الصَّلَاةِ، حَيَّ عَلَى الصَّلَاةِ »
 
 Hayya ‘alas-salaah, Hayya ‘alas-salaah.
 
 “come to the prayer, come to the prayer.”
 
 
-5. «حَيَّ عَلَى الْفَلَاحِ، حَيَّ عَلَى الْفَلَاحِ »
+«حَيَّ عَلَى الْفَلَاحِ، حَيَّ عَلَى الْفَلَاحِ »
 
 Hayya ‘alal-falah, Hayya ‘alal-falaah.
 
 “Come to the success, come to the success.”
 
 
-6. « اَللهُ أَكْبَرُ ، اَللهُ أَكْبَرُ »
+« اَللهُ أَكْبَرُ ، اَللهُ أَكْبَرُ »
 
 Allaahu Akbar, Allaahu Akbar.
 
 ‘Allah is the Greatest, Allah is the Greatest.’
 
 
-7. «لَا إِلَهَ إِلَّا اللهُ»
+«لَا إِلَهَ إِلَّا اللهُ»
 
 Laa ilaaha illallaah.
 
