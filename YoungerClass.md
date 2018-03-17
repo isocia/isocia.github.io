@@ -59,3 +59,6 @@ Here you will find important notes about class and links that are useful for hom
 #### Week 10:
 * Watch story of <a href="https://youtu.be/5IFU5H3RYUc" target="_blank">Prophet Mūsā</a> - Due 03/24/2018
  * Write 10 Bullet Points on the video
+* Memorize arabic and english of Duʿāʾ for "Breaking the fast" and "When invited for food"
+* Memorize the translation of the adhan [Adhan with Translation](https://isocia.github.io/AdhanNotes)
+* List 5 people you are thankful for.
