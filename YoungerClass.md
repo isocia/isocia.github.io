@@ -4,6 +4,8 @@ Here you will find important notes about class and links that are useful for hom
 
 ### [Steps of Wuḍūʾ](https://isocia.github.io/Wu%E1%B8%8D%C5%AB%CA%BE%20Notes)
 
+### [Adhan with Translation](https://isocia.github.io/AdhanNotes)
+
 ### [First Semester](https://isocia.github.io/YoungerFirstSemester)
 
 #### Week 1:
