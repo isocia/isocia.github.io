@@ -4,18 +4,18 @@ Here you will find important notes about class and links that are useful for hom
 
 <a href="https://docs.google.com/document/d/1-EzRI5yUmuXGpIVbbbkTTZytgLP2azMivvRSYm4lZsk/edit?usp=sharing" target="_blank">Shamāʾil Al-Nabī ﷺ</a>
 
-* Quiz on the Physical Descriptions of The Prophet ﷺ (October 21, 2017)
+* Quiz on the manner of eating of The Prophet ﷺ (March 17, 2018)
 
 
 #### Extra Credit - Due before Final Exam:
-* **_Shamāʾil Class_**: Come up with an intresting way to present The Beautiful Physical Characteristics of The Prophet ﷺ. Amount: $5 - $20.
+* **_Prayer Charts_** Every week we are having the students fill out a prayer chart. If they come in with a prayer chart with all prayers being prayed on time, they will receive $10 of extra credit. If they come in with less than 7 late prayers, they will receive $5. If by the end of the semester they have prayed every single prayer on time, we will give them $100 of extra credit.
 
-* **_Shamāʾil Class_**: Attend "<a href="https://servantsofthebeloved.com/nextevent/thequran.html" target="_blank">The Beloved ﷺ and The Qurʾān</a>" at UCI. Write what you leanred and turn it in the day of, or during PTC. Teachers will be able to take students from ISOC to UCI and back. Amount: $10.
+* **_Shamāʾil Class_**: Make and bring one of the following food items that The Prophet ﷺ loved to class. BBQ/Roasted goat, ḥays (yogurt, dates, honey, wheat/gronola), milk+dates+honey drink, spiced grains (barley, olive oil, crushed pepper and spices) Amount: $10-$20/per item.
 
-* **_Tafsīr Class_**: Take one sūrah we have covered so far and and write a 250 word essay on it's importance and the lessons we can take from it.  Amount: $10.
+* **_Shamāʾil Class_**: Attend "<a href="https://servantsofthebeloved.com/nextevent.html" target="_blank">The Beloved ﷺ and The Ramaḍān</a>" at UCI. Write what you leanred and turn it in the day of, or during PTC. Teachers will be able to take students from ISOC to UCI and back. Amount: $20.
 
-* **_Tafsīr Class_**: Research and write about the correlation between the first section (5 verses) of Sūrah al-ʿĀdiyāt and the second section.  Amount: $20.
+* **_Shamāʾil Class_**: Attend "<a href="https://servantsofthebeloved.com/nextevent.html" target="_blank">The Beloved ﷺ and The Ramaḍān</a>" at UCI. Students will have an oppurtunity to give a 5 minute talk about what they've learned in their Shamāʾil Class and present it at the event. Amount: $20.
+
+* **_Tafsīr Class_**
   
- * **_Ṣaḥābah Class_**: What is the importance of the Ṣaḥābah in our religion? Why is it important for us to learn about the Sahabah in the first place? Please provide specific examples from the lives of the Ṣaḥābah we have so far discussed in class to show the contributions they have made to Islam. Required length: minimum 250 words. Amount $10.
-  
-* Have one of your parents sign up for <a href="https://goo.gl/forms/4yaSA4RYYBuw4bz13" target="_blank">Parent-Teacher Conference Jan 6, 2017</a>
+ * **_Ṣaḥābah Class_**
