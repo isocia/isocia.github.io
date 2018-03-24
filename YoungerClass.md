@@ -62,3 +62,8 @@ Here you will find important notes about class and links that are useful for hom
 * Memorize arabic and english of Duʿāʾ for "Breaking the fast" and "When invited for food"
 * Memorize the translation of the adhan [Adhan with Translation](https://isocia.github.io/AdhanNotes)
 * List 5 people you are thankful for.
+
+#### Week 12:
+* Make a list of 7 people that you are thankful for and thank them
+* Fill out your Prayer chart and get it signed
+* Memorize the translation of the Aẓān
