@@ -68,3 +68,8 @@ Here you will find important notes about class and links that are useful for hom
 * Fill out your Prayer chart and get it signed
 * Memorize the translation of the Aẓān
 * Memorize arabic and english of Duʿāʾ for "When Offered Something to Drink"
+
+#### Week 13:
+* Make a list of 10 people that you are thankful for and thank them
+* Fill out your Prayer chart and get it signed
+* Memorize arabic and english of Duʿāʾ for the three sneezing Duʿāʾs
