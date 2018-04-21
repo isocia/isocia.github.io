@@ -73,3 +73,6 @@ Here you will find important notes about class and links that are useful for hom
 * Make a list of 10 people that you are thankful for and thank them
 * Fill out your Prayer chart and get it signed
 * Memorize arabic and english of Duʿāʾ for the three sneezing Duʿāʾs
+
+#### Week 14:
+* Study for your final. <a href="https://jeopardylabs.com/play/saturday-class-semester-2" target="_blank">Here is a link to the Jeopardy we went through today.</a>
