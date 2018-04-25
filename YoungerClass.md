@@ -6,7 +6,7 @@ Here you will find important notes about class and links that are useful for hom
 
 ### [Adhan with Translation](https://isocia.github.io/AdhanNotes)
 
-### [The 2 Parts of Surah Fatihah](https://github.com/isocia/isocia.github.io/blob/master/TwoPartsOfFatihah.md)
+### [The 2 Parts of Surah Fatihah](https://isocia.github.io/TwoPartsOfFatihah)
 
 ### [First Semester](https://isocia.github.io/YoungerFirstSemester)
 
@@ -78,5 +78,5 @@ Here you will find important notes about class and links that are useful for hom
 
 #### Week 14:
 * Study for your final. <a href="https://jeopardylabs.com/play/saturday-class-semester-2" target="_blank">Here is a link to the Jeopardy we went through today.</a>
-* Review [the 2 parts of Surah Fatihah](https://github.com/isocia/isocia.github.io/blob/master/TwoPartsOfFatihah.md)
+* Review [the 2 parts of Surah Fatihah](https://isocia.github.io/TwoPartsOfFatihah)
 * <b>CLARIFICATION:</b> In Tayammum, you wipe your face first, and then you wipe your hands and arms
