@@ -1,11 +1,11 @@
 Surah Fatihah is devided into 2 pars
 
 1. Verses 1-3 (Expressing our relationship to Allah)
-  * Praising and Thanking Allah
-  * Showing our reliance/dependence on Allah
+   * Praising and Thanking Allah
+   * Showing our reliance/dependence on Allah
 2. Verses 5-7 (Telling Allah our needs)
-  * Asking Allah for guidance
-  * Expressing our need for Allah
+   * Asking Allah for guidance
+   * Expressing our need for Allah
 
 Verse #4 is a transition between the 2 parts
 
