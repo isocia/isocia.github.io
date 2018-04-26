@@ -80,3 +80,4 @@ Here you will find important notes about class and links that are useful for hom
 * Study for your final. <a href="https://jeopardylabs.com/play/saturday-class-semester-2" target="_blank">Here is a link to the Jeopardy we went through today.</a>
 * Review [the 2 parts of Surah Fatihah](https://isocia.github.io/TwoPartsOfFatihah)
 * <b>CLARIFICATION:</b> In Tayammum, you wipe your face first, and then you wipe your hands and arms
+* <a href="https://goo.gl/YGATAA" target="_blank">Sign Permission Slip for the end of the year party! Due 4/25</a>
