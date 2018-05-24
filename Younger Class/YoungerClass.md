@@ -2,13 +2,13 @@
 
 Here you will find important notes about class and links that are useful for homework. 
 
-### [Steps of Wuḍūʾ](https://isocia.github.io/Wu%E1%B8%8D%C5%AB%CA%BE%20Notes)
+### [Steps of Wuḍūʾ](https://isocia.github.io/Younger%20Class/2017-2018/Wu%E1%B8%8D%C5%AB%CA%BE%20Notes)
 
-### [Adhan with Translation](https://isocia.github.io/AdhanNotes)
+### [Adhan with Translation](https://isocia.github.io/Younger%20Class/2017-2018/AdhanNotes)
 
-### [The 2 Parts of Surah Fatihah](https://isocia.github.io/TwoPartsOfFatihah)
+### [The 2 Parts of Surah Fatihah](https://isocia.github.io/Younger%20Class/2017-2018/TwoPartsOfFatihah)
 
-### [First Semester](https://isocia.github.io/YoungerFirstSemester)
+### [First Semester](https://isocia.github.io/Younger%20Class/2017-2018/YoungerFirstSemester)
 
 #### Week 1:
 * Memorize the "When Greating a Fellow Muslim" duʿāʾ, "When Responding to a Greeting of Fellow Muslim" duʿāʾ, and the first line of the "When Entering the Market or School" duʿāʾ. You will be tested on the English and Arabic for all of them next week (01/27/2018) in-shāʾ-Allāh.
