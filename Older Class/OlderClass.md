@@ -17,5 +17,5 @@ Here you will find important notes about class and links that are useful for hom
 - Students will be given their prayer charts and will be shown how to use them.
 
 <details><summary>Past Years</summary>
-    <a href="https://isocia.github.io/Younger%20Class/2017-2018/2017-2018">2017-2018</a>
+    <a href="https://isocia.github.io/Older%20Class/2017-2018/2017-2018">2017-2018</a>
 </details>
