@@ -7,7 +7,7 @@ Please find and save our [2018-2019 Calendar](https://docs.google.com/spreadshee
 Please find and save our [Depost Policies](https://docs.google.com/document/d/1UgzbleqABnc-ARckBHvQyn3fqIPlYzyRCML7rqby0PM/edit?usp=sharing)
 
 If you didn't attend the orientation, please do the following:
-1. Fill out the Application Form (https://goo.gl/forms/O1XJcv5EbBaea8jo1)
+1. Fill out the [Application Form](https://goo.gl/forms/O1XJcv5EbBaea8jo1)
 2. Have $100 in cash or check (made out to ISOC)
 3. Arrive at 10am upstairs in the ISOC Muṣallā
 
