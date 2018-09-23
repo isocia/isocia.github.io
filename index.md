@@ -2,9 +2,9 @@
 
 As-salām ʿalaykum Parents,
 
-Please find and save our ![2018-2019 Calendar](https://docs.google.com/spreadsheets/d/1vKNpUns7uxLLcmNAeJsPlKct5cISbl7TMvOwDeRbUCE/edit?usp=sharing)
+Please find and save our [2018-2019 Calendar](https://docs.google.com/spreadsheets/d/1vKNpUns7uxLLcmNAeJsPlKct5cISbl7TMvOwDeRbUCE/edit?usp=sharing)
 
-Please find and save our ![Depost Policies](https://docs.google.com/document/d/1UgzbleqABnc-ARckBHvQyn3fqIPlYzyRCML7rqby0PM/edit?usp=sharing)
+Please find and save our [Depost Policies](https://docs.google.com/document/d/1UgzbleqABnc-ARckBHvQyn3fqIPlYzyRCML7rqby0PM/edit?usp=sharing)
 
 If you didn't attend the orientation, please do the following:
 1. Fill out the Application Form (https://goo.gl/forms/O1XJcv5EbBaea8jo1)
