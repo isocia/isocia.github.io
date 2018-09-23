@@ -2,14 +2,14 @@
 
 As-salām ʿalaykum Parents,
 
-ISOC Saturday Islamic Academy will be having our 2018-19 Orientation on Saturday, September 22 at 10:00 AM, in the ISOC Upstairs Muṣallā. Please be on time, and kindly fill out the online registration form beforehand. Deposits are to be collected at the time of orientation.
+Please find and save our ![2018-2019 Calendar](https://docs.google.com/spreadsheets/d/1vKNpUns7uxLLcmNAeJsPlKct5cISbl7TMvOwDeRbUCE/edit?usp=sharing)
 
-We highly appreciate you informing your friends and family about our classes. Tentatively, we are open to taking students from grades 5 to 10, and will consider grades 4rth and 11th based on enrollment.
+Please find and save our ![Depost Policies](https://docs.google.com/document/d/1UgzbleqABnc-ARckBHvQyn3fqIPlYzyRCML7rqby0PM/edit?usp=sharing)
 
-To ensure a smooth and easy orientation day, please do the following:
+If you didn't attend the orientation, please do the following:
 1. Fill out the Application Form (https://goo.gl/forms/O1XJcv5EbBaea8jo1)
 2. Have $100 in cash or check (made out to ISOC)
-3. Arrive on time
+3. Arrive at 10am upstairs in the ISOC Muṣallā
 
 Jazākum Allāh Khayran,
 We’re always an email/text/call away.
