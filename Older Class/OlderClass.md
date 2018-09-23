@@ -9,6 +9,14 @@ Here you will find important notes about class and links that are useful for hom
 ### Session #1: Words of Ṣalāh
 - Students will recieve booklets on the first day of class *in shāʾ Allāh*.
 
+[**Arabic Booklet**](https://docs.google.com/document/d/1ytobjRGs8uK-O9xW1yqGiOJsly1gxuhGZsSK0El91KU/edit?usp=sharing)
+
+- Every student will recieve only 1 copy. They are to write down the given translation (or one they come up with) and take notes on the in-depth meaning.
+- Students are expected to:
+	1. Memorize the Arabic & English
+	2. Write the translation in their own words
+	3. Regularly teach someone the meaning of a phrase of their choice.
+
 ### Session #1: The Prophet ﷺ's Sīrah [Biography]
 - Students will learn about the importance of knowing the greatest person ever ﷺ.
 
