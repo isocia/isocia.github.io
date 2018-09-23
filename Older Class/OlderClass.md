@@ -2,20 +2,20 @@
 
 Here you will find important notes about class and links that are useful for homework. 
 
-<a href="https://docs.google.com/document/d/1-EzRI5yUmuXGpIVbbbkTTZytgLP2azMivvRSYm4lZsk/edit?usp=sharing" target="_blank">Shamāʾil Al-Nabī ﷺ</a>
+**Homework:**
+- Fill out prayer charts and have parent sign it.
+- Write down 1 relevant topic to discuss in class.
 
-* Quiz on the manner of eating of The Prophet ﷺ (March 17, 2018)
+### Session #1: Words of Ṣalāh
+- Students will recieve booklets on the first day of class *in shāʾ Allāh*.
 
+### Session #1: The Prophet ﷺ's Sīrah [Biography]
+- Students will learn about the importance of knowing the greatest person ever ﷺ.
 
-#### Extra Credit - Due before Final Exam:
-* **_Prayer Charts_** Every week we are having the students fill out a prayer chart. If they come in with a prayer chart with all prayers being prayed on time, they will receive $10 of extra credit. If they come in with less than 7 late prayers, they will receive $5. If by the end of the semester they have prayed every single prayer on time, we will give them $100 of extra credit.
+### Session #3: Relevant Discussion
+- Students will be asked about topics/issues they feel need to be addressed based on what they see/hear/learn outside of class.
+- Students will be given their prayer charts and will be shown how to use them.
 
-* **_Shamāʾil Class_**: Make and bring one of the following food items that The Prophet ﷺ loved to class. BBQ/Roasted goat, ḥays (yogurt, dates, honey, wheat/gronola), milk+dates+honey drink, spiced grains (barley, olive oil, crushed pepper and spices) Amount: $10-$20/per item.
-
-* **_Shamāʾil Class_**: Attend "<a href="https://servantsofthebeloved.com/nextevent.html" target="_blank">The Beloved ﷺ and The Ramaḍān</a>" at UCI. Write what you leanred and turn it in the day of, or during PTC. Teachers will be able to take students from ISOC to UCI and back. Amount: $20.
-
-* **_Shamāʾil Class_**: Attend "<a href="https://servantsofthebeloved.com/nextevent.html" target="_blank">The Beloved ﷺ and The Ramaḍān</a>" at UCI. Students will have an oppurtunity to give a 5 minute talk about what they've learned in their Shamāʾil Class and present it at the event. Amount: $20.
-
-* **_Tafsīr Class_**
-  
- * **_Ṣaḥābah Class_**
+<details><summary>Past Years</summary>
+    <a href="https://isocia.github.io/Younger%20Class/2017-2018/2017-2018">2017-2018</a>
+</details>
