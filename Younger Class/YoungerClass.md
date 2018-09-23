@@ -17,7 +17,7 @@ Here you will find important notes about class and links that are useful for hom
 	2. Write the translation in their own words
 	3. Regularly teach someone the meaning of a phrase of their choice.
     
-[**Booklet Translations**] (https://docs.google.com/document/d/1ysXfgmkbDl2Qxi-9qAF0cWtt8Ucs8E9AveciSaWdFxs/edit?usp=sharing)
+[**Booklet Translations**](https://docs.google.com/document/d/1ysXfgmkbDl2Qxi-9qAF0cWtt8Ucs8E9AveciSaWdFxs/edit?usp=sharing)
 
 - These are general translations written by the teachers for the students. Students can refer to these if they weren't able to write it down in class, if they were absent, or if they want to use these to share or write their own translation.
 
