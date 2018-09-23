@@ -12,7 +12,9 @@ If you didn't attend the orientation, please do the following:
 3. Arrive at 10am upstairs in the ISOC Muṣallā
 
 Jazākum Allāh Khayran,
+
 We’re always an email/text/call away.
+
 Was-salām ʿalaykum
 
 [![Younger Class](https://raw.githubusercontent.com/isocia/isocia.github.io/master/Younger%20Class/Younger.png)](https://isocia.github.io/Younger%20Class/YoungerClass)
