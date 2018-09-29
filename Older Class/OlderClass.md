@@ -23,7 +23,7 @@ Here you will find important notes about class and links that are useful for hom
 
 ### Session #2: The Prophet ﷺ's Sīrah [Biography]
 ##### - Students will learn about the importance of knowing the greatest person ever ﷺ.
-- Homework 1: Read and review [notes for class 1](https://docs.google.com/document/d/1OpDMNylQpj2bUupA1cbM13LdYGPWmFESFZ-B__xGLyU/edit?usp=sharing)
+<span style="color:red">- Homework 1: Read and review [notes for class 1](https://docs.google.com/document/d/1OpDMNylQpj2bUupA1cbM13LdYGPWmFESFZ-B__xGLyU/edit?usp=sharing)</span>
 
 ### Session #3: Relevant Discussion
 - Students will be asked about topics/issues they feel need to be addressed based on what they see/hear/learn outside of class.
