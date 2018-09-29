@@ -22,7 +22,7 @@ Here you will find important notes about class and links that are useful for hom
 - These are general translations written by the teachers for the students. Students can refer to these if they weren't able to write it down in class, if they were absent, or if they want to use these to share or write their own translation.
 
 ### Session #2: The Prophet ﷺ's Sīrah [Biography]
-##### - Students will learn about the importance of knowing the greatest person ever ﷺ.
+   ##### - Students will learn about the importance of knowing the greatest person ever ﷺ.
 - Homework 1: Read and review [notes for class 1](https://docs.google.com/document/d/1OpDMNylQpj2bUupA1cbM13LdYGPWmFESFZ-B__xGLyU/edit?usp=sharing)
 
 ### Session #3: Relevant Discussion
