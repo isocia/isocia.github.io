@@ -32,7 +32,7 @@ Here you will find important notes about class and links that are useful for hom
 <br>
 <br>
 <br>
-___
+_____
 <details><summary>Past Years</summary>
     <a href="https://isocia.github.io/Older%20Class/2017-2018/2017-2018">2017-2018</a>
 </details>
