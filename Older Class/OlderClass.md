@@ -8,7 +8,7 @@ Here you will find important notes about class and links that are useful for hom
 ### Week 1:
 - Fill out prayer charts and have parent sign it.
 - Write down 1 relevant topic to discuss in class.
-- Homework 1: Read and review [notes for class 1](https://docs.google.com/document/d/1OpDMNylQpj2bUupA1cbM13LdYGPWmFESFZ-B__xGLyU/edit?usp=sharing)
+- Seerah: Read and review [notes for class 1](https://docs.google.com/document/d/1OpDMNylQpj2bUupA1cbM13LdYGPWmFESFZ-B__xGLyU/edit?usp=sharing)
 
 <hr/>
 <details><summary>Past Years</summary>
