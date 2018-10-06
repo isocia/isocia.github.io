@@ -1,6 +1,8 @@
 ## Older Class
 Here you will find important notes about class and links that are useful for homework. 
+
 [**Arabic Booklet**](https://docs.google.com/document/d/1ytobjRGs8uK-O9xW1yqGiOJsly1gxuhGZsSK0El91KU/edit?usp=sharing)
+
 [**Booklet Translations**](https://docs.google.com/document/d/1ysXfgmkbDl2Qxi-9qAF0cWtt8Ucs8E9AveciSaWdFxs/edit?usp=sharing)
 
 ### Week 1:
