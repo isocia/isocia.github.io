@@ -1,10 +1,25 @@
-## Younger Class
+# Younger Class
 
 Here you will find important notes about class and links that are useful for homework. 
 
-**Homework:**
+## Homework:
+
+### Week 2:
 - Fill out prayer charts and have parent sign it.
-- Write down 1 relevant topic to discuss in class.
+- Memorize the arabic and translation of the 'Opening Suplication'.
+- List 10 things that show you the perfection of Allah.
+- List 10 things that you can thank Allah for.
+- List 5 topics or questions you want to discuss in class.
+
+
+### Week 1:
+- Fill out prayer charts and have parent sign it.
+- Memorize the arabic and translation of the <i>Takbīr</i>.
+
+
+
+
+## Class Resources
 
 ### Session #1: Words of Ṣalāh
 - Students will recieve booklets on the first day of class *in shāʾ Allāh*.
@@ -21,7 +36,7 @@ Here you will find important notes about class and links that are useful for hom
 
 - These are general translations written by the teachers for the students. Students can refer to these if they weren't able to write it down in class, if they were absent, or if they want to use these to share or write their own translation.
 
-### Session #1: The Prophet ﷺ's Ṣaḥābah [Companions]
+### Session #2: The Prophet ﷺ's Ṣaḥābah [Companions]
 - Students will learn about the importance of knowing these great people.
 
 ### Session #3: Relevant Discussion
