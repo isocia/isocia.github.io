@@ -14,6 +14,7 @@ Here you will find important notes about class and links that are useful for hom
 ### Week 3:
 - **HW: Watch Video & Take Notes on [Natural Disasters The Islamic Response - Mufti Menk](https://www.youtube.com/watch?v=0Ly2diWijes)**
 - **EC: $5 for Notes or $10 for 300 Word Essay on [Robert Davilla Video](https://youtu.be/AWGXw9lpll4)**
+- **EC: $25 for memorizing the [noble lineage of RasūlAllāh ﷺ](https://docs.google.com/document/d/1jgTC9KYiErtroFH7_ks3oUeUad7kTeFG43VbAp0rbv4/edit?usp=sharing) by week 4. $15 for the weeks after.**
 
 ### Week 2:
 - **EC: Memorize [The Noble Lineage of The Prophet ﷺ](https://docs.google.com/document/d/1jgTC9KYiErtroFH7_ks3oUeUad7kTeFG43VbAp0rbv4/edit?usp=sharing)**
