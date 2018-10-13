@@ -11,6 +11,12 @@ Here you will find important notes about class and links that are useful for hom
 - Any *X*s will result in an "*Unprepared*" ($10 penalty) and students will have to make up prayers during break.
 - Students will less than __ (TBD) *L*s and No *X*s will be eligible for a prize at the end of the semester.
 
+### Week 3:
+- **EC: [Robert Davilla Video](https://youtu.be/AWGXw9lpll4)**
+    - $5 for Notes
+    - $10 for 300 Word Essay
+- **EC: Memorize [The Noble Lineage of The Prophet ﷺ](https://docs.google.com/document/d/1jgTC9KYiErtroFH7_ks3oUeUad7kTeFG43VbAp0rbv4/edit?usp=sharing)**
+
 ### Week 2:
 - **EC: Memorize [The Noble Lineage of The Prophet ﷺ](https://docs.google.com/document/d/1jgTC9KYiErtroFH7_ks3oUeUad7kTeFG43VbAp0rbv4/edit?usp=sharing)**
 
