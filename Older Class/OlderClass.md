@@ -12,7 +12,7 @@ Here you will find important notes about class and links that are useful for hom
 - Students will less than __ (TBD) *L*s and No *X*s will be eligible for a prize at the end of the semester.
 
 ### Week 3:
-- **HW: [Natural Disasters The Islamic Response - Mufti Menk] (https://www.youtube.com/watch?v=0Ly2diWijes)**
+- **HW: [Natural Disasters The Islamic Response - Mufti Menk](https://www.youtube.com/watch?v=0Ly2diWijes)**
 - **EC: [Robert Davilla Video](https://youtu.be/AWGXw9lpll4)**
     - $5 for Notes or $10 for 300 Word Essay
 
