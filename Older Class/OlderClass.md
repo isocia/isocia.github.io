@@ -15,7 +15,6 @@ Here you will find important notes about class and links that are useful for hom
 - **EC: [Robert Davilla Video](https://youtu.be/AWGXw9lpll4)**
     - $5 for Notes
     - $10 for 300 Word Essay
-- **EC: Memorize [The Noble Lineage of The Prophet ﷺ](https://docs.google.com/document/d/1jgTC9KYiErtroFH7_ks3oUeUad7kTeFG43VbAp0rbv4/edit?usp=sharing)**
 
 ### Week 2:
 - **EC: Memorize [The Noble Lineage of The Prophet ﷺ](https://docs.google.com/document/d/1jgTC9KYiErtroFH7_ks3oUeUad7kTeFG43VbAp0rbv4/edit?usp=sharing)**
