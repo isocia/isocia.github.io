@@ -4,6 +4,14 @@ Here you will find important notes about class and links that are useful for hom
 
 ## Homework:
 
+### Week 3:
+- Reveiw the [wudu notes](isocia.github.io/Younger Class/Wuḍūʾ Notes.md)
+- Fill out the [prayer chart](https://docs.google.com/document/d/10r8J-O0p6TzG5Q4ko5ecl6XaQtnzPT-dc2YyPzZ4t1U/edit?usp=sharing)
+- List 5 reasons why the Hijrah is important
+- List 5 reasons why the Ṣaḥābah are so important and were so brave
+- Write a paragraph about one manner and apply it throughout the week
+- EC: $10 for the arabic and translation, $5 for either arabic or translation. Memorize the [dua after wuḍū](https://docs.google.com/document/d/1rl5ztcgLuxEOu7acfsDvjeTYhkJMpxa3IrLzL--uZR8/edit?usp=sharing) by week 5
+
 ### Week 2:
 - Fill out prayer charts and have parent sign it.
 - Memorize the arabic and translation of the 'Opening Suplication'.
