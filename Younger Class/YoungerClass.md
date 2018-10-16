@@ -5,7 +5,7 @@ Here you will find important notes about class and links that are useful for hom
 ## Homework:
 
 ### Week 3:
-- Reveiw the [wudu notes](isocia.github.io/Younger Class/Wuḍūʾ Notes.md)
+- Reveiw the <a href="isocia.github.io/Younger Class/Wuḍūʾ Notes.md">wudu notes</a>
 - Fill out the [prayer chart](https://docs.google.com/document/d/10r8J-O0p6TzG5Q4ko5ecl6XaQtnzPT-dc2YyPzZ4t1U/edit?usp=sharing)
 - List 5 reasons why the Hijrah is important
 - List 5 reasons why the Ṣaḥābah are so important and were so brave
