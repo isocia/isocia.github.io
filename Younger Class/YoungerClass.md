@@ -10,7 +10,7 @@ Here you will find important notes about class and links that are useful for hom
 - List 5 reasons why the Hijrah is important
 - List 5 reasons why the Ṣaḥābah are so important and were so brave
 - Write a paragraph about one manner and apply it throughout the week
-- EC: $10 for the arabic and translation, $5 for either arabic or translation. Memorize the [dua after wuḍū](https://docs.google.com/document/d/1rl5ztcgLuxEOu7acfsDvjeTYhkJMpxa3IrLzL--uZR8/edit?usp=sharing) by week 5
+- EC: $10 for the arabic and translation, $5 for either arabic or translation. Memorize the [dua after wuḍū](https://docs.google.com/document/d/1rl5ztcgLuxEOu7acfsDvjeTYhkJMpxa3IrLzL--uZR8/edit?usp=sharing) by week 5. ([Text](https://docs.google.com/document/d/1rl5ztcgLuxEOu7acfsDvjeTYhkJMpxa3IrLzL--uZR8/edit?usp=sharing) | [Audio](https://drive.google.com/file/d/1bHs9zzh8nkby7zDOacGFLmWBlGyE9moR/view?usp=sharing))
 
 ### Week 2:
 - Fill out prayer charts and have parent sign it.
