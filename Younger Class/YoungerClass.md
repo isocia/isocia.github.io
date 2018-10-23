@@ -6,7 +6,7 @@ Here you will find important notes about class and links that are useful for hom
 ### Week 4:
 - Review your notes on the hijrah.
 - learn the names of the people who played a role in the hijrah and what their roles were.
-- Reveiw the <a href="isocia.github.io/Younger Class/Wuḍūʾ Notes.md">wudu notes</a>
+- Reveiw the <a href="https://isocia.github.io/Younger Class/Wuḍūʾ Notes.md">wudu notes</a>
 - Fill out the [prayer chart](https://docs.google.com/document/d/10r8J-O0p6TzG5Q4ko5ecl6XaQtnzPT-dc2YyPzZ4t1U/edit?usp=sharing)
 - Memorize the rest of the opening supplication with the translation
 - EC: $10 for the arabic and translation, $5 for either arabic or translation. Memorize the [dua after wuḍū](https://docs.google.com/document/d/1rl5ztcgLuxEOu7acfsDvjeTYhkJMpxa3IrLzL--uZR8/edit?usp=sharing). ([Audio](https://drive.google.com/file/d/1bHs9zzh8nkby7zDOacGFLmWBlGyE9moR/view?usp=sharing))
