@@ -11,6 +11,10 @@ Here you will find important notes about class and links that are useful for hom
 - Any *X*s will result in an "*Unprepared*" ($10 penalty) and students will have to make up prayers during break.
 - Students will less than __ (TBD) *L*s and No *X*s will be eligible for a prize at the end of the semester.
 
+### Week 4:
+- **HW: Basmalah & Opening Supplication from Prayer Booklet.**
+- **EC: $20 for Rebuttle/Defense of arguments made in Halloween article.**
+
 ### Week 3:
 - **HW: Watch Video & Take Notes on [Natural Disasters The Islamic Response - Mufti Menk](https://www.youtube.com/watch?v=0Ly2diWijes)**
 - **EC: $5 for Notes or $10 for 300 Word Essay on [Robert Davilla Video](https://youtu.be/AWGXw9lpll4)**
