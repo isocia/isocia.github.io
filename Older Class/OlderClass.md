@@ -14,11 +14,11 @@ Here you will find important notes about class and links that are useful for hom
 ### Week 4:
 - **HW: Basmalah & Opening Supplication from Prayer Booklet.**
 - **HW: Read the _[WhatsApp co-founder Jan Koum is leaving Facebook after clashing over data privacy](https://www.theverge.com/2018/4/30/17304792/whatsapp-jan-koum-facebook-data-privacy-encryption)_**
-- **Think about the following questions:** 
-    **1. Is it okay that Facebook takes our information?** 
-    **2. Should we be putting information we do not want people to know on social media?**
-    **3. As a Muslim, do you think, ethically, we should be allowed to look at other peoples' information if they signed the terms and services?**
-    **4. Should we use the apps and programs that mine and use our information?**
+- Think about the following questions:
+    1. Is it okay that Facebook takes our information?
+    2. Should we be putting information we do not want people to know on social media?
+    3. As a Muslim, do you think, ethically, we should be allowed to look at other peoples' information if they signed the terms and services?
+    4. Should we use the apps and programs that mine and use our information?
 - **EC: $20 for Rebuttle/Defense of arguments made in Halloween article.**
 - **EC: $15 for memorizing the [noble lineage of RasūlAllāh ﷺ](https://docs.google.com/document/d/1jgTC9KYiErtroFH7_ks3oUeUad7kTeFG43VbAp0rbv4/edit?usp=sharing)**
 
