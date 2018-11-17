@@ -12,7 +12,8 @@ Here you will find important notes about class and links that are useful for hom
 - Students will less than __ (TBD) *L*s and No *X*s will be eligible for a prize at the end of the semester.
 
 ### Week 8 (11/17/18):
-- **Homework: Watch video & take notes on <a href="https://youtu.be/HQy9q6da_EY" target="_blank">Sh. Ahmad AlKurdy | "Blasphemy, Wind & Fire" | IOK Khutbah</a>**
+- **Homework: Watch video & take notes on <a href="https://youtu.be/HQy9q6da_EY?t=1142" target="_blank">Sh. Ahmad AlKurdy | "Blasphemy, Wind & Fire" | IOK Khutbah</a>**
+    - Watch from the 19:00 minute mark of the video until the end. 
 
 ### Week 4:
 - **HW: Basmalah & Opening Supplication from Prayer Booklet.**
