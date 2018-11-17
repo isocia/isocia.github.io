@@ -9,6 +9,7 @@ Here you will find important notes about class and links that are useful for hom
 - Reveiw the <a href="https://docs.google.com/document/d/1bWnaKHG5bXyImEvSFsYfvqCe73GWify1qguiXNCekpo/edit?usp=sharing">wudu notes</a>
 - Fill out the [prayer chart](https://docs.google.com/document/d/10r8J-O0p6TzG5Q4ko5ecl6XaQtnzPT-dc2YyPzZ4t1U/edit?usp=sharing)
 - Memorize the latest assignment from the words of Salah booklet.
+- Write 5 actions and explain a good and bad intention for each.
 - EC: $5 to memorize the Arabic and Translation of the extended version of the duʿā for getting protection from Shaytan.
 
 ### Week 5 (10/27/2018):
