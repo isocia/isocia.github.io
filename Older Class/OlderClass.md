@@ -11,6 +11,9 @@ Here you will find important notes about class and links that are useful for hom
 - Any *X*s will result in an "*Unprepared*" ($10 penalty) and students will have to make up prayers during break.
 - Students will less than __ (TBD) *L*s and No *X*s will be eligible for a prize at the end of the semester.
 
+### Week 8 (11/17/18):
+- **Homework: Watch video & take notes on <a href="https://youtu.be/HQy9q6da_EY" target="_blank">Sh. Ahmad AlKurdy | "Blasphemy, Wind & Fire" | IOK Khutbah</a>**
+
 ### Week 4:
 - **HW: Basmalah & Opening Supplication from Prayer Booklet.**
 - **HW: Read the _[WhatsApp co-founder Jan Koum is leaving Facebook after clashing over data privacy](https://www.theverge.com/2018/4/30/17304792/whatsapp-jan-koum-facebook-data-privacy-encryption)_**
