@@ -15,7 +15,7 @@ Here you will find important notes about class and links that are useful for hom
 - **Homework:**
     1. Write proper flowing English translation on first 7 phrases in Ṣalāh Booklet.
         - From اَللهُ أَكْبَرُ to إِيَّاكَ نَعْبُدُ وَإِيَّاكَ نَسْتَعِيْنُ
-    2. Write a page about what you think about looking at and interesting with girls, watching inappropriate videos, the struggles you might have, and how you might deal with them. Is it okay to stare at girls, or watch "bad" snaps, dirty movies? What do you do, or how do you feel about your friends who date, have sex, or watch porn?
+    2. Write a page about what you think about looking at and interacting with girls, watching inappropriate videos, the struggles you might have, and how you might deal with them. Is it okay to stare at girls, watch "bad" snaps, or dirty movies? What do you do, or how do you feel about your friends who date, have sex, or watch porn?
     3. Study for finals
     
 ### Week 8 (11/17/18):
