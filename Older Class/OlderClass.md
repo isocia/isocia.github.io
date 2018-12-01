@@ -11,6 +11,13 @@ Here you will find important notes about class and links that are useful for hom
 - Any *X*s will result in an "*Unprepared*" ($10 penalty) and students will have to make up prayers during break.
 - Students will less than __ (TBD) *L*s and No *X*s will be eligible for a prize at the end of the semester.
 
+### Week 8 (12/01/18):
+- **Homework:**
+    1. Write proper flowing English translation on first 7 phrases in Ṣalāh Booklet.
+        - From اَللهُ أَكْبَرُ - إِيَّاكَ نَعْبُدُ وَإِيَّاكَ نَسْتَعِيْنُ
+    2. Watch video & take notes on <a href="https://www.youtube.com/watch?v=SS8ZEBr6sKo" target="_blank">Sexual Desires</a>.
+    3. Study for finals
+    
 ### Week 8 (11/17/18):
 - **Homework: Watch video & take notes on <a href="https://youtu.be/HQy9q6da_EY?t=1142" target="_blank">Sh. Ahmad AlKurdy | "Blasphemy, Wind & Fire" | IOK Khutbah</a>**
     - Watch from the 19:00 minute mark of the video until the end. 
