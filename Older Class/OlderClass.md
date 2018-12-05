@@ -20,7 +20,7 @@ Here you will find important notes about class and links that are useful for hom
         - From اَللهُ أَكْبَرُ to إِيَّاكَ نَعْبُدُ وَإِيَّاكَ نَسْتَعِيْنُ
     2. Write a page about what you think about looking at and interacting with girls, watching inappropriate videos, the struggles you might have, and how you might deal with them. Is it okay to stare at girls, watch "bad" snaps, or dirty movies? What do you do, or how do you feel about your friends who date, have sex, or watch porn?
     3. Study for finals
-    4. **Seerah $20 Extra Credt: Create a 7-10 minute presentation to summarize the main points of everything we have talked about so far and present it in class. If too many people do this extra credit, I will hear your presentations outside of class.**
+    4. **Seerah $20 Extra Credt: Create a 7-10 minute presentation to summarize the main points of everything we have talked about so far and present it in class. You will need to turn in a written version of your presentation before presenting. If too many people do this extra credit, the written version will still be due in class, but I will hear your presentations outside of class via voice recording.**
     
 ### Week 8 (11/17/18):
 - **Homework: Watch video & take notes on <a href="https://youtu.be/HQy9q6da_EY?t=1142" target="_blank">Sh. Ahmad AlKurdy | "Blasphemy, Wind & Fire" | IOK Khutbah</a>**
