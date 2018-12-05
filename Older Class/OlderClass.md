@@ -11,7 +11,7 @@ Here you will find important notes about class and links that are useful for hom
 - Any *X*s will result in an "*Unprepared*" ($10 penalty) and students will have to make up prayers during break.
 - Students will less than __ (TBD) *L*s and No *X*s will be eligible for a prize at the end of the semester.
 
-### Week 8 (12/01/18):
+### Week 9 (12/01/18):
 - **Homework:**
     1. Write proper flowing English translation on first 7 phrases in Ṣalāh Booklet.
         - From اَللهُ أَكْبَرُ to إِيَّاكَ نَعْبُدُ وَإِيَّاكَ نَسْتَعِيْنُ
