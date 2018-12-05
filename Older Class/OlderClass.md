@@ -11,12 +11,16 @@ Here you will find important notes about class and links that are useful for hom
 - Any *X*s will result in an "*Unprepared*" ($10 penalty) and students will have to make up prayers during break.
 - Students will less than __ (TBD) *L*s and No *X*s will be eligible for a prize at the end of the semester.
 
+[**Seerah Notes**](https://drive.google.com/open?id=1y8WXmSZhqnDGLrPU1MNW18L4yP7t87IV)
+- Study these for the final!
+
 ### Week 9 (12/01/18):
 - **Homework:**
     1. Write proper flowing English translation on first 7 phrases in Ṣalāh Booklet.
         - From اَللهُ أَكْبَرُ to إِيَّاكَ نَعْبُدُ وَإِيَّاكَ نَسْتَعِيْنُ
     2. Write a page about what you think about looking at and interacting with girls, watching inappropriate videos, the struggles you might have, and how you might deal with them. Is it okay to stare at girls, watch "bad" snaps, or dirty movies? What do you do, or how do you feel about your friends who date, have sex, or watch porn?
     3. Study for finals
+    4. **Seerah $20 Extra Credt: Create a 7-10 minute presentation to summarize the main points of everything we have talked about so far and present it in class. If too many people do this extra credit, I will hear your presentations outside of class.**
     
 ### Week 8 (11/17/18):
 - **Homework: Watch video & take notes on <a href="https://youtu.be/HQy9q6da_EY?t=1142" target="_blank">Sh. Ahmad AlKurdy | "Blasphemy, Wind & Fire" | IOK Khutbah</a>**
