@@ -11,7 +11,7 @@ Here you will find important notes about class and links that are useful for hom
 - Any *X*s will result in an "*Unprepared*" ($10 penalty) and students will have to make up prayers during break.
 - Students will less than __ (TBD) *L*s and No *X*s will be eligible for a prize at the end of the semester.
 
-[**Seerah Notes**](https://drive.google.com/open?id=1y8WXmSZhqnDGLrPU1MNW18L4yP7t87IV)
+**<a href="https://drive.google.com/open?id=1y8WXmSZhqnDGLrPU1MNW18L4yP7t87IV" target="_blank">Seerah Notes</a>**
 - Study these for the final!
 
 ### Week 9 (12/01/18):
