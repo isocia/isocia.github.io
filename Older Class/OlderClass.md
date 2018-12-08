@@ -11,8 +11,11 @@ Here you will find important notes about class and links that are useful for hom
 - Any *X*s will result in an "*Unprepared*" ($10 penalty) and students will have to make up prayers during break.
 - Students will less than __ (TBD) *L*s and No *X*s will be eligible for a prize at the end of the semester.
 
-**<a href="https://drive.google.com/open?id=1y8WXmSZhqnDGLrPU1MNW18L4yP7t87IV" target="_blank">Seerah Notes</a>**
-- Study these for the final!
+### Final exam review (12/08/18):
+- <a href="https://drive.google.com/open?id=1y8WXmSZhqnDGLrPU1MNW18L4yP7t87IV" target="_blank">Study these for the final: Seerah Notes</a>
+- Final exam review questions:
+    - <a href="http://jeopardylabs.com/play/isia-2018-semester-1" target="_blank">Part 1</a>
+    - <a href="http://jeopardylabs.com/play/isia-2018-semester-1-part-2" target="_blank">Part 2</a>
 
 ### Week 9 (12/01/18):
 - **Homework:**
