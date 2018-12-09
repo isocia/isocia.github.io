@@ -2,6 +2,10 @@
 
 ### Please fill out your <a href="https://drive.google.com/open?id=1z1bs4PsIbjLIpvPJDgGFlfzY4vXo9FCk" target="_blank">permission slip</a> for the post-party final!
 
+### Please fill out this [waiver form](https://westminsterstore.skyzone.com/waiver/WaiverInfo.aspx) for Sky Zone.
+
+### Dec 15 is that last class of 2018. Students should arrive by 8:30am to ISOC. They will have their final exam, followed by a trip to Sky Zone, followed by Ẓuhr and a delicious meal! Students will be back at ISOC for pickup around 2pm, *in-shāʾ-Allāh*.
+
 ### Please find and save our <a href="https://docs.google.com/document/d/1UgzbleqABnc-ARckBHvQyn3fqIPlYzyRCML7rqby0PM/edit?usp=sharing" target="_blank">Depost Policies</a>
 
 - <a href="https://docs.google.com/document/d/10r8J-O0p6TzG5Q4ko5ecl6XaQtnzPT-dc2YyPzZ4t1U/edit?usp=sharing" target="_blank">Weekly Prayer Chart</a>
