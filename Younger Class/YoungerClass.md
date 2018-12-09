@@ -4,6 +4,10 @@ Here you will find important notes about class and links that are useful for hom
 
 ## Homework:
 
+### Week 10 (12/08/18):
+- [Jeopardy Review](https://jeopardylabs.com/play/2018-12-08-28)
+- [Study Guide](https://docs.google.com/document/d/1qTdrLJ6UMS9EkOL2ndv85scd2urFYvxcHifSBuYxklA/edit?usp=drivesdk)
+
 ### Week 6 (11/3/2018):
 - Review your notes on the life of Abu Bakr (RA).
 - Reveiw the <a href="https://docs.google.com/document/d/1bWnaKHG5bXyImEvSFsYfvqCe73GWify1qguiXNCekpo/edit?usp=sharing">wudu notes</a>
