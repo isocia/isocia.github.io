@@ -17,12 +17,14 @@ Here you will find important notes about class and links that are useful for hom
 - Final exam review questions:
     - <a href="http://jeopardylabs.com/play/isia-2018-semester-1" target="_blank">Part 1</a>
     - <a href="http://jeopardylabs.com/play/isia-2018-semester-1-part-2" target="_blank">Part 2</a>
-
+### Week 10 (12/08/18):
+- **Homework:**
+    1. Write a page about what you think about looking at and interacting with girls, watching inappropriate videos, the struggles you might have, and how you might deal with them. Is it okay to stare at girls, watch "bad" snaps, or dirty movies? What do you do, or how do you feel about your friends who date, have sex, or watch porn?
 ### Week 9 (12/01/18):
 - **Homework:**
     1. Write proper flowing English translation on first 7 phrases in Ṣalāh Booklet.
         - From اَللهُ أَكْبَرُ to إِيَّاكَ نَعْبُدُ وَإِيَّاكَ نَسْتَعِيْنُ
-    2. Write a page about what you think about looking at and interacting with girls, watching inappropriate videos, the struggles you might have, and how you might deal with them. Is it okay to stare at girls, watch "bad" snaps, or dirty movies? What do you do, or how do you feel about your friends who date, have sex, or watch porn?
+    2. **EC** Write a page about what you think about looking at and interacting with girls, watching inappropriate videos, the struggles you might have, and how you might deal with them. Is it okay to stare at girls, watch "bad" snaps, or dirty movies? What do you do, or how do you feel about your friends who date, have sex, or watch porn?
     3. Study for finals
     4. **Seerah $20 Extra Credt: Create a 7-10 minute presentation to summarize the main points of everything we have talked about so far and present it in class. You will need to turn in a written version of your presentation before presenting. If too many people do this extra credit, the written version will still be due in class, but I will hear your presentations outside of class via voice recording.**
     
