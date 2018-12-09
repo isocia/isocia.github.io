@@ -14,12 +14,24 @@ Here you will find important notes about class and links that are useful for hom
 ### Final exam review (12/08/18):
 - <a href="https://drive.google.com/open?id=1y8WXmSZhqnDGLrPU1MNW18L4yP7t87IV" target="_blank">Study these for the final: Seerah Notes</a>
     - Make sure to use gmail and not your school email.
-- Final exam review questions:
+- Final exam review questions, study guide, and Jeopardy:
     - <a href="http://jeopardylabs.com/play/isia-2018-semester-1" target="_blank">Part 1</a>
     - <a href="http://jeopardylabs.com/play/isia-2018-semester-1-part-2" target="_blank">Part 2</a>
+    
+### All EC:
+- **$5-$25: Come up with a creative way to show/teach something you've learned this semester.**
+- **$10: Write 300+ words talking about an instance of blasphemy, and how you did/will/could respond to better the situation.**
+- **$20 [Sīrah]: Create a 7-10 minute presentation to summarize the main points of everything we have talked about so far and present it in class. You will need to turn in a written version of your presentation before presenting. If too many people do this extra credit, the written version will still be due in class, but I will hear your presentations outside of class via voice recording.**
+- **$20 for Rebuttle/Defense of arguments made in Halloween article.**
+- **$15 for memorizing the [noble lineage of RasūlAllāh ﷺ](https://docs.google.com/document/d/1jgTC9KYiErtroFH7_ks3oUeUad7kTeFG43VbAp0rbv4/edit?usp=sharing)**
+- **$5 for Notes or $10 for 300 Word Essay on [Robert Davilla Video](https://youtu.be/AWGXw9lpll4)**
+- **$5/week: No lates on prayer chart**
+
 ### Week 10 (12/08/18):
 - **Homework:**
     1. Write a page about what you think about looking at and interacting with girls, watching inappropriate videos, the struggles you might have, and how you might deal with them. Is it okay to stare at girls, watch "bad" snaps, or dirty movies? What do you do, or how do you feel about your friends who date, have sex, or watch porn?
+    2. **STUDY**
+    
 ### Week 9 (12/01/18):
 - **Homework:**
     1. Write proper flowing English translation on first 7 phrases in Ṣalāh Booklet.
