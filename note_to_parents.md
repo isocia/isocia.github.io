@@ -5,7 +5,7 @@ After, we'll go to Sky Zone for 2 hours of fun, jumping, and games. Please fill 
 After the fun and games, we'll return to ISOC for Ẓuhr, and have lunch, awards, and prizes.
 Students will be free for pickup around 2:15pm *in-shāʾ-Allāh*.
 
-**Note that Sky Zone has their own online [*Waiver Form*](https://westminsterstore.skyzone.com/waiver/WaiverInfo.aspx) so please fill that out as well.**
+**Note: Sky Zone has their own online [*Waiver Form*](https://westminsterstore.skyzone.com/waiver/WaiverInfo.aspx) so please fill that out as well.**
 
 
 **Note:** ISIA will be holding Parent-Teacher Conferences on Saturday, January 5th. **Please fill out the online [PTC Form](https://docs.google.com/forms/d/e/1FAIpQLScIYDgdJLmZ2oSPhzhASKlsTtJvTclJh-0gRjitjFBYuNfunA/viewform?usp=sf_link)** to schedule a time.
