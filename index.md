@@ -1,10 +1,6 @@
+## ISIA will be holding Parent-Teacher Conferences on Saturday, January 5th. **Please fill out the online [PTC Form](https://docs.google.com/forms/d/e/1FAIpQLScIYDgdJLmZ2oSPhzhASKlsTtJvTclJh-0gRjitjFBYuNfunA/viewform?usp=sf_link)** to schedule a time.
+
 ### Please find and save our <a href="https://drive.google.com/file/d/1zgeY8lmIBOeOVl5Ra0v05H4ZZ1aMj_EF/view?usp=sharing" target="_blank">2018-2019 Calendar</a>
-
-### Please fill out your <a href="https://drive.google.com/open?id=1z1bs4PsIbjLIpvPJDgGFlfzY4vXo9FCk" target="_blank">permission slip</a> for the post-party final!
-
-### Please fill out this [waiver form](https://westminsterstore.skyzone.com/waiver/WaiverInfo.aspx) for Sky Zone.
-
-### Dec 15 is that last class of 2018. Students should arrive by 8:50am to ISOC. They will have their final exam, followed by a trip to Sky Zone, followed by Ẓuhr and a delicious meal! Students will be back at ISOC for pickup around 2:15pm, *in-shāʾ-Allāh*.
 
 ### Please find and save our <a href="https://docs.google.com/document/d/1UgzbleqABnc-ARckBHvQyn3fqIPlYzyRCML7rqby0PM/edit?usp=sharing" target="_blank">Depost Policies</a>
 
