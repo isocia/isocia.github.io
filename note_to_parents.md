@@ -6,6 +6,6 @@ We will be returning back students' work, finals, and extra credit, and providin
 
 [Schedule](https://docs.google.com/spreadsheets/d/1X5x4BGwUpqatRzO-EGCmn0r7B-eGbOv2FnTVbi2PqX0/edit?usp=drivesdk)
 
-We are more than happy to address and if your questions or concerns. May Allāh ﷻ bless us all, Āmīn!
+We are more than happy to address any of your questions or concerns. May Allāh ﷻ bless us all, Āmīn!
 
 Wa ʿalaykum as-salām
