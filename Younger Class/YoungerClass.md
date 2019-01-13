@@ -4,6 +4,16 @@ Here you will find important notes about class and links that are useful for hom
 
 ## Homework:
 
+### Semester 2:
+
+#### Week 1:
+- Allah's responses to the first 3 ayahs of Surah Al-Fātiḥah. See the full ḥadīth [here](https://sunnah.com/muslim/4/41).
+- The 5 things mentioned in [Surah Luqmān, ayah 34](https://quran.com/31/34)
+- Prayer charts.
+- EC: $5 for memorizing the rain dua. Check your notes for now. I will post the dua with the translation later this week.
+
+### Semester 1:
+
 ### Week 10 (12/08/18):
 - [Jeopardy Review](https://jeopardylabs.com/play/2018-12-08-28)
 - [Study Guide](https://docs.google.com/document/d/1qTdrLJ6UMS9EkOL2ndv85scd2urFYvxcHifSBuYxklA/edit?usp=drivesdk)
