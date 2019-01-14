@@ -10,7 +10,7 @@ Here you will find important notes about class and links that are useful for hom
 - Allah's responses to the first 3 ayahs of Surah Al-Fātiḥah. See the full ḥadīth [here](https://sunnah.com/muslim/4/41).
 - The 5 things mentioned in [Surah Luqmān, ayah 34](https://quran.com/31/34)
 - Prayer charts.
-- EC: $5 for memorizing the rain dua. Check your notes for now. I will post the dua with the translation later this week.
+- EC: $5 for memorizing [the rain dua](https://docs.google.com/document/d/17B5wBu6oEOLeBNEPYrKTWAYq-He2YgcQP3ajQvUXZQQ/edit?usp=sharing). 
 
 ### Semester 1:
 
