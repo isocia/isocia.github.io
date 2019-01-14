@@ -14,9 +14,9 @@ Here you will find important notes about class and links that are useful for hom
 ## Semester 2
 ### Week 1 (1/12/19):
 - **Homework:**
-1. How you do make use of your: (1) young age, (2) strength/health, (3) money: food/clothes/house/phone, and (4) free time.
+     1. How you do make use of your: (1) young age, (2) strength/health, (3) money: food/clothes/house/phone, and (4) free time.
 - **EC**
-1. $5: Teach one person about the [2 Sunnah's of rain](https://servantsofthebeloved.com/writeups/rain.html)
+     1. $5: Teach one person about the [2 Sunnah's of rain](https://servantsofthebeloved.com/writeups/rain.html)
 
 ## Semester 1
 
