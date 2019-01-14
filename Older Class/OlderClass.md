@@ -11,6 +11,15 @@ Here you will find important notes about class and links that are useful for hom
 - Any *X*s will result in an "*Unprepared*" ($10 penalty) and students will have to make up prayers during break.
 - Students will less than __ (TBD) *L*s and No *X*s will be eligible for a prize at the end of the semester.
 
+## Semester 2
+### Week 1 (1/12/19):
+- **Homework:**
+- How you do make use of your: (1) young age, (2) strength/health, (3) money: food/clothes/house/phone, and (4) free time.
+- **EC**
+- $5: Teach one person about the [2 Sunnah's of rain](https://servantsofthebeloved.com/writeups/rain.html)
+
+## Semester 1
+
 ### Final exam review (12/08/18):
 - <a href="https://drive.google.com/open?id=1y8WXmSZhqnDGLrPU1MNW18L4yP7t87IV" target="_blank">Study these for the final: Seerah Notes</a>
     - Make sure to use gmail and not your school email.
