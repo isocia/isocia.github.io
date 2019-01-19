@@ -11,6 +11,8 @@ Here you will find important notes about class and links that are useful for hom
 - Any *X*s will result in an "*Unprepared*" ($10 penalty) and students will have to make up prayers during break.
 - Students will less than __ (TBD) *L*s and No *X*s will be eligible for a prize at the end of the semester.
 
+[**Seerah Notes**](https://drive.google.com/open?id=1y8WXmSZhqnDGLrPU1MNW18L4yP7t87IV)
+
 ## Semester 2
 ### Week 2 (1/19/19):
 - **Quiz:**
@@ -18,6 +20,7 @@ Here you will find important notes about class and links that are useful for hom
 - **Homework:**
      - Write a full translation of Sūrah al-Fātiḥah in your **own words**. For each verse, mention 1 benefit.
      - Write about one awkward situation you've had with a girl liking/hugging you (or you doing that to a girl). What was going through your head? Were you worried? Did you feel excited? Or bad? How did you feel after? What would you do if your parents saw that? — Or talk about a similar situation with a friend/classmate that is gay/lesbian/bi-sexual/transgender.
+     - Study Seerah Notes
 - **EC**
      - $10-20: Present what you've learned about Sūrah al-Fātiḥah in a fun, creative way.
 
