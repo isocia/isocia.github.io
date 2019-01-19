@@ -15,49 +15,46 @@ Here you will find important notes about class and links that are useful for hom
 #### Week 2 (01/19/2019):
 - Prayer charts.
 
-#### Week 3 (01/19/2019):
+#### Week 3 (01/26/2019):
 - Prayer charts.
 
-#### Week 4 (01/26/2019):
+#### Week 4 (02/02/2019):
 - Prayer charts.
 
-#### Week 5 (02/02/2019):
+#### Week 5 (02/09/2019):
 - Prayer charts.
 
-#### Week 6 (02/09/2019):
+#### Week 6 (02/16/2019):
 - Prayer charts.
 
-#### Week 7 (02/16/2019):
+#### Week 7 (02/23/2019):
 - Prayer charts.
 
-#### Week 8 (02/23/2019):
+#### Week 8 (03/02/2019):
 - Prayer charts.
 
-#### Week 9 (03/02/2019):
+#### Week 9 (03/09/2019):
 - Prayer charts.
 
-#### Week 10 (03/09/2019):
+#### Week 10 (03/16/2019):
 - Prayer charts.
 
-#### Week 11 (03/16/2019):
+#### Week 11 (03/23/2019):
 - Prayer charts.
 
-#### Week 12 (03/23/2019):
+#### Week 12 (03/30/2019):
 - Prayer charts.
 
-#### Week 13 (03/30/2019):
+#### Week 13 (04/06/2019):
 - Prayer charts.
 
-#### Week 14 (04/06/2019):
+#### Week 14 (04/13/2019):
 - Prayer charts.
 
-#### Week 15 (04/13/2019):
+#### Week 15 (04/20/2019):
 - Prayer charts.
 
-#### Week 16 (04/20/2019):
-- Prayer charts.
-
-#### Week 17 (04/27/2019):
+#### Week 16 (04/27/2019):
 - Prayer charts.
 
 
