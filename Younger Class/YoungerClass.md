@@ -4,11 +4,70 @@ Here you will find important notes about class and links that are useful for hom
 
 ## Homework:
 
-### Week 10 (12/08/18):
+### Semester 2:
+
+#### Week 1 (01/12/2019):
+- Allah's responses to the first 3 ayahs of Surah Al-Fātiḥah. See the full ḥadīth [here](https://sunnah.com/muslim/4/41).
+- The 5 things mentioned in [Surah Luqmān, ayah 34](https://quran.com/31/34)
+- Prayer charts.
+- EC: $5 for memorizing the rain dua. Check your notes for now. I will post the dua with the translation later this week.
+
+#### Week 2 (01/19/2019):
+- Prayer charts.
+
+#### Week 3 (01/19/2019):
+- Prayer charts.
+
+#### Week 4 (01/26/2019):
+- Prayer charts.
+
+#### Week 5 (02/02/2019):
+- Prayer charts.
+
+#### Week 6 (02/09/2019):
+- Prayer charts.
+
+#### Week 7 (02/16/2019):
+- Prayer charts.
+
+#### Week 8 (02/23/2019):
+- Prayer charts.
+
+#### Week 9 (03/02/2019):
+- Prayer charts.
+
+#### Week 10 (03/09/2019):
+- Prayer charts.
+
+#### Week 11 (03/16/2019):
+- Prayer charts.
+
+#### Week 12 (03/23/2019):
+- Prayer charts.
+
+#### Week 13 (03/30/2019):
+- Prayer charts.
+
+#### Week 14 (04/06/2019):
+- Prayer charts.
+
+#### Week 15 (04/13/2019):
+- Prayer charts.
+
+#### Week 16 (04/20/2019):
+- Prayer charts.
+
+#### Week 17 (04/27/2019):
+- Prayer charts.
+
+
+### Semester 1:
+
+#### Week 10 (12/08/18):
 - [Jeopardy Review](https://jeopardylabs.com/play/2018-12-08-28)
 - [Study Guide](https://docs.google.com/document/d/1qTdrLJ6UMS9EkOL2ndv85scd2urFYvxcHifSBuYxklA/edit?usp=drivesdk)
 
-### Week 6 (11/3/2018):
+#### Week 6 (11/3/2018):
 - Review your notes on the life of Abu Bakr (RA).
 - Reveiw the <a href="https://docs.google.com/document/d/1bWnaKHG5bXyImEvSFsYfvqCe73GWify1qguiXNCekpo/edit?usp=sharing">wudu notes</a>
 - Fill out the [prayer chart](https://docs.google.com/document/d/10r8J-O0p6TzG5Q4ko5ecl6XaQtnzPT-dc2YyPzZ4t1U/edit?usp=sharing)
@@ -16,7 +75,7 @@ Here you will find important notes about class and links that are useful for hom
 - Write 5 actions and explain a good and bad intention for each.
 - EC: $5 to memorize the Arabic and Translation of the extended version of the duʿā for getting protection from Shaytan.
 
-### Week 5 (10/27/2018):
+#### Week 5 (10/27/2018):
 - Review your notes on the life of Abu Bakr (RA).
 - write about why we dont celebrate Halloween as muslims (details should be in your notebook).
 - Reveiw the <a href="https://docs.google.com/document/d/1bWnaKHG5bXyImEvSFsYfvqCe73GWify1qguiXNCekpo/edit?usp=sharing">wudu notes</a>
@@ -24,7 +83,7 @@ Here you will find important notes about class and links that are useful for hom
 - Memorize the latest assignment from the words of Salah booklet.
 - EC: $5 for the arabic and translation. Memorize the [dua after wuḍū](https://docs.google.com/document/d/1rl5ztcgLuxEOu7acfsDvjeTYhkJMpxa3IrLzL--uZR8/edit?usp=sharing). ([Audio](https://drive.google.com/file/d/1bHs9zzh8nkby7zDOacGFLmWBlGyE9moR/view?usp=sharing))
 
-### Week 4 (10/20/2018):
+#### Week 4 (10/20/2018):
 - Review your notes on the hijrah.
 - learn the names of the people who played a role in the hijrah and what their roles were.
 - Reveiw the <a href="https://docs.google.com/document/d/1bWnaKHG5bXyImEvSFsYfvqCe73GWify1qguiXNCekpo/edit?usp=sharing">wudu notes</a>
@@ -32,7 +91,7 @@ Here you will find important notes about class and links that are useful for hom
 - Memorize the rest of the opening supplication with the translation
 - EC: $10 for the arabic and translation, $5 for either arabic or translation. Memorize the [dua after wuḍū](https://docs.google.com/document/d/1rl5ztcgLuxEOu7acfsDvjeTYhkJMpxa3IrLzL--uZR8/edit?usp=sharing). ([Audio](https://drive.google.com/file/d/1bHs9zzh8nkby7zDOacGFLmWBlGyE9moR/view?usp=sharing))
 
-### Week 3 (10/13/2018):
+#### Week 3 (10/13/2018):
 - Reveiw the <a href="isocia.github.io/Younger Class/Wuḍūʾ Notes.md">wudu notes</a>
 - Fill out the [prayer chart](https://docs.google.com/document/d/10r8J-O0p6TzG5Q4ko5ecl6XaQtnzPT-dc2YyPzZ4t1U/edit?usp=sharing)
 - List 5 reasons why the Hijrah is important
@@ -40,7 +99,7 @@ Here you will find important notes about class and links that are useful for hom
 - Write a paragraph about one manner and apply it throughout the week
 - EC: $10 for the arabic and translation, $5 for either arabic or translation. Memorize the [dua after wuḍū](https://docs.google.com/document/d/1rl5ztcgLuxEOu7acfsDvjeTYhkJMpxa3IrLzL--uZR8/edit?usp=sharing) by week 5. ([Audio](https://drive.google.com/file/d/1bHs9zzh8nkby7zDOacGFLmWBlGyE9moR/view?usp=sharing))
 
-### Week 2 (10/6/2018):
+#### Week 2 (10/6/2018):
 - Fill out prayer charts and have parent sign it.
 - Memorize the arabic and translation of the 'Opening Suplication'.
 - List 10 things that show you the perfection of Allah.
@@ -48,7 +107,7 @@ Here you will find important notes about class and links that are useful for hom
 - List 5 topics or questions you want to discuss in class.
 
 
-### Week  (9/29/2018):
+#### Week  (9/29/2018):
 - Fill out prayer charts and have parent sign it.
 - Memorize the arabic and translation of the <i>Takbīr</i>.
 
