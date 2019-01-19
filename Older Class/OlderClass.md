@@ -17,9 +17,10 @@ Here you will find important notes about class and links that are useful for hom
 ### Week 2 (1/19/19):
 - **Quiz:**
      - Oral and written quiz on Sūrah al-Fātiḥah. You will be tested on the Arabic, English, and basic points.
+     - Seerah
 - **Homework:**
      - Write a full translation of Sūrah al-Fātiḥah in your **own words**. For each verse, mention 1 benefit.
-     - Write about one awkward situation you've had with a girl liking/hugging you (or you doing that to a girl). What was going through your head? Were you worried? Did you feel excited? Or bad? How did you feel after? What would you do if your parents saw that? — Or talk about a similar situation with a friend/classmate that is gay/lesbian/bi-sexual/transgender.
+     - What do you think Ghusl is? When do you have to make Ghusl? How do you make Ghusl? 
      - Study Seerah Notes
 - **EC**
      - $10-20: Present what you've learned about Sūrah al-Fātiḥah in a fun, creative way.
