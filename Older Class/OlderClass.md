@@ -12,11 +12,20 @@ Here you will find important notes about class and links that are useful for hom
 - Students will less than __ (TBD) *L*s and No *X*s will be eligible for a prize at the end of the semester.
 
 ## Semester 2
+### Week 2 (1/19/19):
+- **Quiz:**
+     - Oral and written quiz on Sūrah al-Fātiḥah. You will be tested on the Arabic, English, and basic points.
+- **Homework:**
+     - Write a full translation of Sūrah al-Fātiḥah in your **own words**. For each verse, mention 1 benefit.
+     - Write about one awkward situation you've had with a girl liking/hugging you (or you doing that to a girl). What was going through your head? Were you worried? Did you feel excited? Or bad? How did you feel after? What would you do if your parents saw that? — Or talk about a similar situation with a friend/classmate that is gay/lesbian/bi-sexual/transgender.
+- **EC**
+     - $10-20: Present what you've learned about Sūrah al-Fātiḥah in a fun, creative way.
+
 ### Week 1 (1/12/19):
 - **Homework:**
-     1. How you do make use of your: (1) young age, (2) strength/health, (3) money: food/clothes/house/phone, and (4) free time.
+     - How you do make use of your: (1) young age, (2) strength/health, (3) money: food/clothes/house/phone, and (4) free time.
 - **EC**
-     1. $5: Teach one person about the [2 Sunnah's of rain](https://servantsofthebeloved.com/writeups/rain.html)
+     - $5: Teach one person about the [2 Sunnah's of rain](https://servantsofthebeloved.com/writeups/rain.html)
 
 ## Semester 1
 
