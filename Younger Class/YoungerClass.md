@@ -16,7 +16,7 @@ Here you will find important notes about class and links that are useful for hom
 - Learn the responses of Allah to the verses of Surah Al-Fātiḥah. See the full ḥadīth [here](https://sunnah.com/muslim/4/41).
 - Review all the vocabulary from Surah Al-Fātiḥah.
 - Write 3 sentences about the following ḥadīth that we covered in class:
-'Uqbah bin 'Amir narrated that the Messenger of Allah (ﷺ) said: "If there was to have a Prophet after me, it would have been 'Umar bin Al-Khattab."
+'Uqbah bin 'Amir narrated that the Messenger of Allah (ﷺ) said: "If there was to have a Prophet after me, it would have been 'Umar bin Al-Khattab." (Narrated by At-Tirmidhī)
 - Prayer charts.
 
 #### Week 3 (01/26/2019):
