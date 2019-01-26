@@ -9,11 +9,18 @@ Here you will find important notes about class and links that are useful for hom
 [**Prayer Charts**](https://docs.google.com/document/d/10r8J-O0p6TzG5Q4ko5ecl6XaQtnzPT-dc2YyPzZ4t1U/edit?usp=sharing)
 - Students are required to print this on their own.
 - Any *X*s will result in an "*Unprepared*" ($10 penalty) and students will have to make up prayers during break.
-- Students will less than __ (TBD) *L*s and No *X*s will be eligible for a prize at the end of the semester.
+- Students with less than __ (TBD) *L*s and No *X*s will be eligible for a prize at the end of the semester.
 
 [**Seerah Notes**](https://drive.google.com/open?id=1y8WXmSZhqnDGLrPU1MNW18L4yP7t87IV)
 
 ## Semester 2
+### Week 3 (1/26/19):
+- **Homework:**
+     - Write about your thoughts or summary of [The Academic Problems of Darwinian Evolution](https://www.youtube.com/watch?v=fsJUk_vQnCs)
+     - Permission Slips
+- **EC**
+     - $10: Chaning in the locker room in a ḥalāl, and modest way for the whole week.
+
 ### Week 2 (1/19/19):
 - **Quiz:**
      - Oral and written quiz on Sūrah al-Fātiḥah. You will be tested on the Arabic, English, and basic points.
