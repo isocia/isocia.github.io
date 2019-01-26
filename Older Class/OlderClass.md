@@ -19,7 +19,7 @@ Here you will find important notes about class and links that are useful for hom
      - Write about your thoughts or summary of [The Academic Problems of Darwinian Evolution](https://www.youtube.com/watch?v=fsJUk_vQnCs)
      - Permission Slips
 - **EC**
-     - $10: Chaning in the locker room in a ḥalāl, and modest way for the whole week.
+     - $10: Changing in the locker room in a ḥalāl, and modest way for the whole week.
 
 ### Week 2 (1/19/19):
 - **Quiz:**
