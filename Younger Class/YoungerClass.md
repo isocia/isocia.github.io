@@ -6,11 +6,11 @@ Here you will find important notes about class and links that are useful for hom
 
 ### Semester 2:
 
-#### Week 1 (01/12/2019):
-- Allah's responses to the first 3 ayahs of Surah Al-Fātiḥah. See the full ḥadīth [here](https://sunnah.com/muslim/4/41).
-- The 5 things mentioned in [Surah Luqmān, ayah 34](https://quran.com/31/34). It is also referenced in [this ḥadīth](https://sunnah.com/muslim/1/5).
+#### Week 3 (01/26/2019):
+- Review the translaiton of Surah Al-Fātiḥah.
+- Learn the translation and vocabulary (the boxes in the booklet) for the 3 phrases we covered in class.
+- Write one thing you like or one thing you do not like. If you pick something you like, think of wisdoms of why it may not be good for you and write them down. If you pick something you don't like, think of wisdoms of why it may be good for you and write them down.
 - Prayer charts.
-- EC: $5 for memorizing [the rain dua](https://docs.google.com/document/d/17B5wBu6oEOLeBNEPYrKTWAYq-He2YgcQP3ajQvUXZQQ/edit?usp=sharing). 
 
 #### Week 2 (01/19/2019):
 - Learn the responses of Allah to the verses of Surah Al-Fātiḥah. See the full ḥadīth [here](https://sunnah.com/muslim/4/41).
@@ -19,11 +19,11 @@ Here you will find important notes about class and links that are useful for hom
 'Uqbah bin 'Amir narrated that the Messenger of Allah (ﷺ) said: "If there was to have a Prophet after me, it would have been 'Umar bin Al-Khattab." (Narrated by At-Tirmidhī)
 - Prayer charts.
 
-#### Week 3 (01/26/2019):
-- Review the translaiton of Surah Al-Fātiḥah.
-- Learn the translation and vocabulary (the boxes in the booklet) for the 3 phrases we covered in class.
-- Write one thing you like or one thing you do not like. If you pick something you like, think of wisdoms of why it may not be good for you and write them down. If you pick something you don't like, think of wisdoms of why it may be good for you and write them down.
+#### Week 1 (01/12/2019):
+- Allah's responses to the first 3 ayahs of Surah Al-Fātiḥah. See the full ḥadīth [here](https://sunnah.com/muslim/4/41).
+- The 5 things mentioned in [Surah Luqmān, ayah 34](https://quran.com/31/34). It is also referenced in [this ḥadīth](https://sunnah.com/muslim/1/5).
 - Prayer charts.
+- EC: $5 for memorizing [the rain dua](https://docs.google.com/document/d/17B5wBu6oEOLeBNEPYrKTWAYq-He2YgcQP3ajQvUXZQQ/edit?usp=sharing). 
 
 <!---#### Week 4 (02/02/2019):
 - Prayer charts.
