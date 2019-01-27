@@ -20,6 +20,9 @@ Here you will find important notes about class and links that are useful for hom
 - Prayer charts.
 
 #### Week 3 (01/26/2019):
+- Review the translaiton of Surah Al-Fātiḥah.
+- Learn the translation and vocabulary (the boxes in the booklet) for the 3 phrases we covered in class.
+- Write one thing you like or one thing you do not like. If you pick something you like, think of wisdoms of why it may not be good for you and write them down. If you pick something you don't like, think of wisdoms of why it may be good for you and write them down.
 - Prayer charts.
 
 #### Week 4 (02/02/2019):
