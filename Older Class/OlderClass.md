@@ -16,7 +16,7 @@ Here you will find important notes about class and links that are useful for hom
 ## Semester 2
 ### Week 3 (1/26/19):
 - **Homework:**
-     - Write about your thoughts or summary of [Islam, Evolution, and Darwinism](https://youtu.be/y53M3TJCY1E)
+     - Write about your thoughts or summary of [Islam, Evolution, and Darwinism](https://youtu.be/riqCx84rhf) (or click <a href="https://youtu.be/riqCx84rhfY" target="_blank">here</a>.)
      - Permission Slips
 - **EC**
      - $10: Changing in the locker room in a ḥalāl, and modest way for the whole week.
