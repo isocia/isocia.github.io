@@ -14,6 +14,19 @@ Here you will find important notes about class and links that are useful for hom
 [**Seerah Notes**](https://drive.google.com/open?id=1y8WXmSZhqnDGLrPU1MNW18L4yP7t87IV)
 
 ## Semester 2
+
+### Week 6 (2/16/19): No School
+- **Homework:** Will be posted soon, *in shāʾ Allāh* 
+
+### Week 5 (2/9/19):
+- **EC** $10 for writing a **whole page** on one of the following (EC for as many as you turn in - $100 total):
+     - Explanation of the first [5 verses of Sūrah al-ʿAlaq](https://quran.com/96/1-5) based on a book/video of *Tafsīr*.
+     - Explanation of the first [10 verses of Sūrah al-Muddaththir](https://quran.com/74/1-10) based on a book/video of *Tafsīr*.
+     - Explanation of the first [4 verses of Sūrah al-ʿAlaq](https://quran.com/73/1-4) based on a book/video of *Tafsīr*.
+     - Biography of one of the first few Muslims: [Zayd ibn al-Ḥārithah](https://www.youtube.com/watch?v=Z7LteiDJ54Q), [Ṭalḥah ibn ʿUbaydillāh](https://www.youtube.com/watch?v=Exa4rS4DqOs), [Zubayr ibn al-ʿAwwām](https://www.youtube.com/watch?v=51ZbA15jjIE), [Saʿd ibn Abī Waqqāṣ](https://www.youtube.com/watch?v=IwDvrUq_ZVE), [ʿAbd al-Raḥmān ibn ʿAwf](https://www.youtube.com/watch?v=EihufTKtrOY), [Ibn Masʿūd](https://www.youtube.com/watch?v=YKDePhTisRE), or [Bilal](https://www.youtube.com/watch?v=PrOoNgz8W88).
+
+### Week 4 (2/2/19): Activity Day - Lazer Quest
+
 ### Week 3 (1/26/19):
 - **Homework:**
      - Write about your thoughts or summary of [Islam, Evolution, and Darwinism](https://youtu.be/riqCx84rhfY) (or click <a href="https://youtu.be/riqCx84rhfY" target="_blank">here</a>.)
