@@ -6,6 +6,21 @@ Here you will find important notes about class and links that are useful for hom
 
 ### Semester 2:
 
+#### Week 6 (02/23/2019):
+- Prayer charts.
+- Learn the definition if raka'ah.
+- Write down the prayer times for Sunday (2/24)
+- Watch this YouTube video on the motions of prayer. [How to pray.](https://www.youtube.com/watch?v=W89XielClL0)
+- Memorize the new dua
+- Take 15 minutes every day to either read Qur'an or do du'a and write down what you did.
+
+#### Week 5 (02/09/2019):
+- Prayer charts.
+- Review words of Salah.
+
+#### Week 4 (02/02/2019):
+Activity Day
+
 #### Week 3 (01/26/2019):
 - Review the translaiton of Surah Al-Fātiḥah.
 - Learn the translation and vocabulary (the boxes in the booklet) for the 3 phrases we covered in class.
@@ -25,17 +40,11 @@ Here you will find important notes about class and links that are useful for hom
 - Prayer charts.
 - EC: $5 for memorizing [the rain dua](https://docs.google.com/document/d/17B5wBu6oEOLeBNEPYrKTWAYq-He2YgcQP3ajQvUXZQQ/edit?usp=sharing). 
 
-<!---#### Week 4 (02/02/2019):
-- Prayer charts.
 
-#### Week 5 (02/09/2019):
-- Prayer charts.
 
-#### Week 6 (02/16/2019):
-- Prayer charts.
+<!---
 
-#### Week 7 (02/23/2019):
-- Prayer charts.
+
 
 #### Week 8 (03/02/2019):
 - Prayer charts.
