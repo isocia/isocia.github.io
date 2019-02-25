@@ -10,9 +10,10 @@ Here you will find important notes about class and links that are useful for hom
 - Prayer charts.
 - Learn the definition of raka'ah.
 - Write down the prayer times for Sunday (2/24).
-- Watch [this](https://www.youtube.com/watch?v=W89XielClL0) YouTube video on the motions of prayer. [How to pray.](https://www.youtube.com/watch?v=W89XielClL0).
+- Watch [this](https://www.youtube.com/watch?v=W89XielClL0) YouTube video on the motions of prayer. [How to pray.](https://www.youtube.com/watch?v=W89XielClL0)
 - Memorize the dua for sitting between sajdah.
 - Take 15 minutes every day to either read Qur'an or do du'a and write down what you did.
+- EC: Watch [this](https://www.youtube.com/watch?v=oXie-AAPqtc) video on Uthman (RA) and write 250 words about the talk. [Video link.](https://www.youtube.com/watch?v=oXie-AAPqtc)
 
 #### Week 5 (02/09/2019):
 - Prayer charts.
