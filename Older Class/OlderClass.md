@@ -15,15 +15,23 @@ Here you will find important notes about class and links that are useful for hom
 
 ## Semester 2
 
-### Week 6 (2/16/19): No School
-- **Homework:** Will be posted soon, *in shāʾ Allāh* 
+### (3/2/19): No School
+- **Homework:**
+     - Practice, memorize, and write the Arabic and English phrases from the Prayer Booklet.
+     - Teach someone about the first two parts of ***al-Taḥiyyāt*** (for Allāh & The Prophet ﷺ), and have them write a summary.
+          - Include the rewards and blessings of sending *ṣalāh* on The Prophet ﷺ.
+- **EC:**
+     - TBD
+
+### (2/23/19): No School
+- **Homework:**
+     - Practice, memorize, and write the Arabic and English phrases from the Prayer Booklet.
+     
+### (2/16/19): No School
 
 ### Week 5 (2/9/19):
-- **EC** $10 for writing a **whole page** on one of the following (EC for as many as you turn in - $100 total):
-     - Explanation of the first [5 verses of Sūrah al-ʿAlaq](https://quran.com/96/1-5) based on a book/video of *Tafsīr*.
-     - Explanation of the first [10 verses of Sūrah al-Muddaththir](https://quran.com/74/1-10) based on a book/video of *Tafsīr*.
-     - Explanation of the first [4 verses of Sūrah al-ʿAlaq](https://quran.com/73/1-4) based on a book/video of *Tafsīr*.
-     - Biography of one of the first few Muslims: [Zayd ibn al-Ḥārithah](https://www.youtube.com/watch?v=Z7LteiDJ54Q), [Ṭalḥah ibn ʿUbaydillāh](https://www.youtube.com/watch?v=Exa4rS4DqOs), [Zubayr ibn al-ʿAwwām](https://www.youtube.com/watch?v=51ZbA15jjIE), [Saʿd ibn Abī Waqqāṣ](https://www.youtube.com/watch?v=IwDvrUq_ZVE), [ʿAbd al-Raḥmān ibn ʿAwf](https://www.youtube.com/watch?v=EihufTKtrOY), [Ibn Masʿūd](https://www.youtube.com/watch?v=YKDePhTisRE), or [Bilal](https://www.youtube.com/watch?v=PrOoNgz8W88).
+- **EC** $10 for writing a **whole page** on one of the following (EC for as many as you turn in - $70 total):
+     Biography of one of the first few Muslims: [Zayd ibn al-Ḥārithah](https://www.youtube.com/watch?v=Z7LteiDJ54Q), [Ṭalḥah ibn ʿUbaydillāh](https://www.youtube.com/watch?v=Exa4rS4DqOs), [Zubayr ibn al-ʿAwwām](https://www.youtube.com/watch?v=51ZbA15jjIE), [Saʿd ibn Abī Waqqāṣ](https://www.youtube.com/watch?v=IwDvrUq_ZVE), [ʿAbd al-Raḥmān ibn ʿAwf](https://www.youtube.com/watch?v=EihufTKtrOY), [Ibn Masʿūd](https://www.youtube.com/watch?v=YKDePhTisRE), or [Bilal](https://www.youtube.com/watch?v=PrOoNgz8W88).
 
 ### Week 4 (2/2/19): Activity Day - Lazer Quest
 
