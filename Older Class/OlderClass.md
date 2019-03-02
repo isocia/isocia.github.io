@@ -18,7 +18,7 @@ Here you will find important notes about class and links that are useful for hom
 ### (3/2/19):
 - **Homework:**
      - Practice, memorize, and write the Arabic and English phrases from the Prayer Booklet.
-     - Teach someone about the first two parts of ***al-Taḥiyyāt*** (for Allāh & The Prophet ﷺ), and have them write a summary.
+     - Teach someone about the first two parts of ***al-Taḥiyyāt*** (for Allāh & The Prophet ﷺ).
           - Include the rewards and blessings of sending *ṣalāh* on The Prophet ﷺ.
 - **EC:**
      - TBD
