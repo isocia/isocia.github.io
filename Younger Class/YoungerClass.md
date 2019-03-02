@@ -6,7 +6,7 @@ Here you will find important notes about class and links that are useful for hom
 
 ### Semester 2:
 
-#### Week 8 (03/02/2019):
+#### Week 7 (03/02/2019):
 - Prayer charts.
 - Memorize the rest of dua for sitting between <i>sajdah</i>s.
 - Review the translation of the previous duʾās.
