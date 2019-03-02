@@ -6,6 +6,12 @@ Here you will find important notes about class and links that are useful for hom
 
 ### Semester 2:
 
+#### Week 8 (03/02/2019):
+- Prayer charts.
+- Memorize the rest of dua for sitting between <i>sajdah</i>s.
+- Review the translation of the previous duʾās.
+- Write down prayer times for your city from [Islamic Finder.](https://www.islamicfinder.org/). It can be for any day between 3/3/2019 - 3/9/2019
+
 #### Week 6 (02/23/2019):
 - Prayer charts.
 - Learn the definition of raka'ah.
@@ -13,7 +19,7 @@ Here you will find important notes about class and links that are useful for hom
 - Watch [this](https://www.youtube.com/watch?v=W89XielClL0) YouTube video on the motions of prayer. [How to pray.](https://www.youtube.com/watch?v=W89XielClL0)
 - Memorize the dua for sitting between sajdah.
 - Take 15 minutes every day to either read Qur'an or do du'a and write down what you did.
-- EC: Watch [this](https://www.youtube.com/watch?v=oXie-AAPqtc) video on Uthman (RA) and write 250 words about the talk. [Video link.](https://www.youtube.com/watch?v=oXie-AAPqtc)
+- EC (Due 3/9/2019): $10 Watch [this](https://www.youtube.com/watch?v=oXie-AAPqtc) video on Uthman (RA) and write 250 words about the talk. [Video link.](https://www.youtube.com/watch?v=oXie-AAPqtc)
 
 #### Week 5 (02/09/2019):
 - Prayer charts.
@@ -44,11 +50,6 @@ Activity Day
 
 
 <!---
-
-
-
-#### Week 8 (03/02/2019):
-- Prayer charts.
 
 #### Week 9 (03/09/2019):
 - Prayer charts.
