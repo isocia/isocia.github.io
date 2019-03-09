@@ -6,11 +6,17 @@ Here you will find important notes about class and links that are useful for hom
 
 ### Semester 2:
 
+#### Week 9 (03/09/2019):
+- Prayer charts.
+- Review the translation of the previous duʾās.
+- Review the prayer times that we went over in class. What are the 3 times we shouldn't pray at?
+- Write down 5 things you learned about Uthman (RA).
+
 #### Week 7 (03/02/2019):
 - Prayer charts.
 - Memorize the rest of dua for sitting between <i>sajdah</i>s.
 - Review the translation of the previous duʾās.
-- Write down prayer times for your city from [Islamic Finder.](https://www.islamicfinder.org/). It can be for any day between 3/3/2019 - 3/9/2019
+- Write down prayer times for your city from [Islamic Finder.](https://www.islamicfinder.org/) It can be for any day between 3/3/2019 - 3/9/2019.
 
 #### Week 6 (02/23/2019):
 - Prayer charts.
