@@ -6,7 +6,7 @@ Here you will find important notes about class and links that are useful for hom
 
 ### Semester 2:
 
-#### Week 9 (03/09/2019):
+#### Week 8 (03/09/2019):
 - Prayer charts.
 - Review the translation of the previous duʾās.
 - Review the prayer times that we went over in class. What are the 3 times we shouldn't pray at?

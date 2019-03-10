@@ -15,6 +15,18 @@ Here you will find important notes about class and links that are useful for hom
 
 ## Semester 2
 
+### (3/9/19):
+- **Homework:**
+    - Write down (with a pencil or pen) the definition, 3 synonyms, and a sentence using the following words.
+        - Peace
+        - Safety
+        - Protection
+        - Mercy
+        - Blessing
+
+- **EC:**
+     - Memorize the duʾā for <i>salāt al-janāzah</i>(the funeral prayer).
+
 ### (3/2/19):
 - **Homework:**
      - Practice, memorize, and write the Arabic and English phrases from the Prayer Booklet.
