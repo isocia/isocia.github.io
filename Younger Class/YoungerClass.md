@@ -6,6 +6,14 @@ Here you will find important notes about class and links that are useful for hom
 
 ### Semester 2:
 
+#### Week 10 (03/23/2019):
+- Prayer charts.
+- Write down the definition of 'blessing' and 3 synonyms.
+- Memorize the du'a for the sitting, <i>jalsah</i>, and the beggining of <i>at-taḥiyyāt.</i>
+
+#### Week 9 (03/16/2019):
+- <b>Activity Day</b>
+
 #### Week 8 (03/09/2019):
 - Prayer charts.
 - Review the translation of the previous duʾās.
@@ -57,8 +65,6 @@ Activity Day
 
 <!---
 
-#### Week 9 (03/09/2019):
-- Prayer charts.
 
 #### Week 10 (03/16/2019):
 - Prayer charts.
