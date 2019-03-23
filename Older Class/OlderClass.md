@@ -15,6 +15,13 @@ Here you will find important notes about class and links that are useful for hom
 
 ## Semester 2
 
+### (3/23/19):
+- **Homework:**
+     - Discussion Homework
+        -<a href="https://youtu.be/G2-MigjjbaM" target="_blank">Watch recording of the Khutbah</a>
+        -Summarize the 3 key takeaways at the end of the Khutbah
+        -Write one practical think _you_ can do for each of the 3 points
+
 ### (3/9/19):
 - **Homework:**
     - Write down (with a pencil or pen) the definition, 3 synonyms, and a sentence using the following words.
