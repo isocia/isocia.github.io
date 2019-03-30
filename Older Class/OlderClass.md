@@ -15,6 +15,12 @@ Here you will find important notes about class and links that are useful for hom
 
 ## Semester 2
 
+
+### (3/30/19):
+- **Homework:**
+     - Write & Do 3 things to prepare for Ramaḍān
+     - Say *lā ilāha illā Allāh* 10x **outloud** morning and evening
+
 ### (3/23/19):
 - **Homework:**
      - Discussion Homework
