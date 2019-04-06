@@ -8,6 +8,7 @@ Here you will find important notes about class and links that are useful for hom
 
 #### Week 13 (04/06/2019):
 - Prayer charts.
+- List 5 things you learned about Ali (RA) from todays class.
 
 #### Week 11 (03/30/2019):
 - Prayer charts.
