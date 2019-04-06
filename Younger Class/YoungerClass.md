@@ -6,6 +6,12 @@ Here you will find important notes about class and links that are useful for hom
 
 ### Semester 2:
 
+#### Week 13 (04/06/2019):
+- Prayer charts.
+
+#### Week 11 (03/30/2019):
+- Prayer charts.
+
 #### Week 10 (03/23/2019):
 - Prayer charts.
 - Write down the definition of 'blessing' and 3 synonyms.
@@ -64,16 +70,6 @@ Activity Day
 
 
 <!---
-
-
-#### Week 10 (03/16/2019):
-- Prayer charts.
-
-#### Week 11 (03/23/2019):
-- Prayer charts.
-
-#### Week 12 (03/30/2019):
-- Prayer charts.
 
 #### Week 13 (04/06/2019):
 - Prayer charts.
