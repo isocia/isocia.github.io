@@ -15,6 +15,10 @@ Here you will find important notes about class and links that are useful for hom
 
 ## Semester 2
 
+### (4/27/19):
+- **STUDY FOR YOUR FINAL!**
+     - <a href="https://drive.google.com/drive/folders/1r_2n9G60xTaVM3fzsRyq1DBiBXUMZ0xn?usp=sharing" target="_blank">Review Pictures from Class</a>
+     - <a href="https://drive.google.com/open?id=1y8WXmSZhqnDGLrPU1MNW18L4yP7t87IV" target="_blank">Seerah Notes</a>
 
 ### (3/30/19):
 - **Homework:**
