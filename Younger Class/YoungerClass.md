@@ -6,6 +6,15 @@ Here you will find important notes about class and links that are useful for hom
 
 ### Semester 2:
 
+#### Week 15 (04/20/2019):
+- Prayer charts.
+- Prepare for the final and make duʾā for Allah to help you.
+- Review the question from the Jeopardy. [Here is a link to play](https://jeopardylabs.com/play/2019-04-19-2). You can view all the questions in one document [here](https://drive.google.com/file/d/17ngxfXloAbnhh6uyVooP5IlH-OWf77W0/view?usp=sharing) 
+- Review the word of salah using [this study guide.](https://docs.google.com/document/d/1gAcnFL8DFxbSR6C-l0UBGzlRgpAvLiYU7Cb7WyHskAM/edit?usp=sharing)
+
+#### Week 14 (04/13/2019):
+- Prayer charts. 
+
 #### Week 13 (04/06/2019):
 - Prayer charts.
 - List 5 things you learned about Ali (RA) from todays class.
@@ -72,17 +81,7 @@ Activity Day
 
 <!---
 
-#### Week 13 (04/06/2019):
-- Prayer charts.
 
-#### Week 14 (04/13/2019):
-- Prayer charts.
-
-#### Week 15 (04/20/2019):
-- Prayer charts.
-
-#### Week 16 (04/27/2019):
-- Prayer charts. -->
 
 
 ### Semester 1:
